@@ -7,7 +7,7 @@ layout: main
 1.
 --
 
-She slipped down the corridor, lump in her throat, skin tingling with excitement and pounding terror. Her footsteps, though quiet, thundered in her head as they echoed off the bare stone walls in the labyrinthine tunnels beneath the keep. 
+She slipped down the corridor, lump in her throat, skin tingling with excitement and pounding terror. Her footsteps, though quiet, thundered in her head as they echoed off the bare stone walls in the labyrinthine tunnels beneath the keep.
 
 Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. Two guards. 
 
