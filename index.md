@@ -1,6 +1,4 @@
 ---
-permalink: index.html
-title: Index
 ---
 A markdown file
 ---------------
