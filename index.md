@@ -11,19 +11,19 @@ She slipped down the corridor, lump in her throat, skin tingling with excitement
 
 Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. Two guards. 
 
-Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their pressense, gave away the prizes within. 
+Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their presence, gave away the prizes within. 
 
 Stepping out, she took on her guise of the damsel in distress. If there was one thing all military men loved, it was having helping out an woman in need. Why, who wouldn't be thankful? And who knows how thankful she might be?
 
-"Woah, stop right there!" the first guard yelled, stretching out his hand. "What are you doing down here?" asked the younger guard, in a friendlier tone.
+"Woah, stop right there!" the first guard yelled, stretching out his hand. "What are you doing down here?" asked the younger guard, in a friendlier tone.
 
-"Thank goodness" Emlyn replied, putting on her most earnest voice. "I got lost, I have been wandering around for ages!"
+"Thank goodness" Emlyn replied, putting on her most earnest voice. "I got lost, I have been wandering around for ages!"
 
-"STOP! Not one more step, or I'll run you through!" the senior guard shouted again, putting his right hand to the hilt of his sword, as he pulled the sheath clear of his cloak with military precision. Still, the die was cast and it would take far more than two guards to dissuade her from carrying out her mission.
+"STOP! Not one more step, or I'll run you through!" the senior guard shouted again, putting his right hand to the hilt of his sword, as he pulled the sheath clear of his cloak with military precision. Still, the die was cast and it would take far more than two guards to dissuade her from carrying out her mission.
 
-"Sorry", she said, almost crying, "I was just so scared".
+"Sorry", she said, almost crying, "I was just so scared".
 
-"That's okay, but please stand right there, I'll get one of my colleagues will assist you", the guard replied, and moved his hand to put his whistle to his lips. 
+"That's okay, but please stand right there, I'll get one of my colleagues will assist you", the guard replied, and moved his hand to put his whistle to his lips. 
 
 She wasn't going to let him get off a summoning call, and by the time he knew to signal an alarm it would be too late. Drawing the power of Meranis into her chest, she darted forward with inhuman speed and punched straight for gut.
 
@@ -56,31 +56,31 @@ Stoping only to dissuade a young pick-pocket with a gentle nudge, she headed dow
 
 Finally freeing herself from the crowd, she saw Orin sitting at one of the tables in the sun outside the front of the inn, glass of wine in hand with an empty glass beside the bottle itself.
 
-"What took you so long? I almost finished this bottle by myself", Orin said humorously, a patronising gripping his face. 
+"What took you so long? I almost finished this bottle by myself", Orin said humorously, a patronising gripping his face. 
 
-Emlyn sat down next to him, lifted the empty wine glass up to her eye and look at him through it. "You're lying", she said quietly, trying to keep her face as straight as possible. "There is no way you could have known that I would be back so soon". They locked eyes, neither of them wanting to give away their thoughts. "That mean, that you have been waiting here for me to return, to mock me no matter how early I was", she said, placing the glass back on the table, not dropping eye contact for a moment. 
+Emlyn sat down next to him, lifted the empty wine glass up to her eye and look at him through it. "You're lying", she said quietly, trying to keep her face as straight as possible. "There is no way you could have known that I would be back so soon". They locked eyes, neither of them wanting to give away their thoughts. "That mean, that you have been waiting here for me to return, to mock me no matter how early I was", she said, placing the glass back on the table, not dropping eye contact for a moment. 
 
-"What? Do you think I would play such juvenile games?", Orin replied in mock offense. "I am a busy man I will have you know Rosie, I cannot simply spend my entire day thinking of clever things to say and do to trick you people I will have you know!"
+"What? Do you think I would play such juvenile games?", Orin replied in mock offense. "I am a busy man I will have you know Rosie, I cannot simply spend my entire day thinking of clever things to say and do to trick you people I will have you know!"
 
-Her faced cracked and she began to smile. "Of course not" she replied as she slipped the purple envelope under the table into his outstretched hand.
+Her faced cracked and she began to smile. "Of course not" she replied as she slipped the purple envelope under the table into his outstretched hand.
 
-"No matter", he said waiving his hand. "I have great news Rosie" he said, continuing his charade of happy indifference. "A letter reached me this morning" Orin said, pulling the purple letter out in plain sight for all to see. So much for discretion. "And I believe, it contains a great treasure! Shall we open it?" he inquired dramatically?
+"No matter", he said waiving his hand. "I have great news Rosie" he said, continuing his charade of happy indifference. "A letter reached me this morning" Orin said, pulling the purple letter out in plain sight for all to see. So much for discretion. "And I believe, it contains a great treasure! Shall we open it?" he inquired dramatically?
 
-"Here Master Tomlin?" Emlyn said, somewhat surprised. "Wouldn't it be safer to address its contents in private?"
+"Here Master Tomlin?" Emlyn said, somewhat surprised. "Wouldn't it be safer to address its contents in private?"
 
-"Nonsense child, who would ever want to keep good news a secret?" he replied, opening the letter messily. "Why look at this", he said showing her the piece of paper contained within. "It seems to be the betting slip to yesterday's winning track horse. What great fortune! Who could have been so kind as to send me such a gift?"
+"Nonsense child, who would ever want to keep good news a secret?" he replied, opening the letter messily. "Why look at this", he said showing her the piece of paper contained within. "It seems to be the betting slip to yesterday's winning track horse. What great fortune! Who could have been so kind as to send me such a gift?"
 
-"Who indeed? It would appear that you have some very lucky friends" Emlyn replied, sighing to herself about the shear obviousness of it all now. 
+"Who indeed? It would appear that you have some very lucky friends" Emlyn replied, sighing to herself about the shear obviousness of it all now. 
 
 It now seemed so obvious that Orin would never have sent her on a truly important mission on her first assignment in foreign country. Hadn't everything been too easy? Only two guards, almost no security to speak of. She was starting to feel truly silly when Orin interrupted her train of thoughts.
 
-"And generous", he continued. "Well, this truly deserves to be celebrated, let us raise a glass together" he said as he took up the bottle and started filling the empty glass.
+"And generous", he continued. "Well, this truly deserves to be celebrated, let us raise a glass together" he said as he took up the bottle and started filling the empty glass.
 
-"If you insist" she replied, holding her glass steady as Orin started to fill it.
+"If you insist" she replied, holding her glass steady as Orin started to fill it.
 
-"Of couse my dear Rosie, we are in Ren, not Verris. Why even a sixteen year old such as yourself can drink a little wine!" he said lightly. "Now come", Orin continued, "To good fortunes!"
+"Of couse my dear Rosie, we are in Ren, not Verris. Why even a sixteen year old such as yourself can drink a little wine!" he said lightly. "Now come", Orin continued, "To good fortunes!"
 
-"To Good fortunes" Emlyn replied and she started to sip her wine. 
+"To Good fortunes" Emlyn replied and she started to sip her wine. 
 
-Orin knocked his glass back in one full gulp and started pouring himself another glass. "Right, well it seems to me that we must be heading to the races to collect our winnings. And there is no time like the present, so let us finish off this fine bottle and be on our ways, we have a fine day of work ahead of us".
+Orin knocked his glass back in one full gulp and started pouring himself another glass. "Right, well it seems to me that we must be heading to the races to collect our winnings. And there is no time like the present, so let us finish off this fine bottle and be on our ways, we have a fine day of work ahead of us".
 
