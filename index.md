@@ -11,7 +11,7 @@ She slipped down the corridor, lump in her throat, skin tingling with excitement
 
 Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. Two guards. 
 
-Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their pressense, gave away the prizes within. 
+Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their presence gave away the prizes within. 
 
 Stepping out, she took on her guise of the damsel in distress. If there was one thing all military men loved, it was having helping out an woman in need. Why, who wouldn't be thankful? And who knows how thankful she might be?
 
@@ -25,7 +25,7 @@ Stepping out, she took on her guise of the damsel in distress. If there was one 
 
 "That's okay, but please stand right there, I'll get one of my colleagues will assist you", the guard replied, and moved his hand to put his whistle to his lips. 
 
-She wasn't going to let him get off a summoning call, and by the time he knew to signal an alarm it would be too late. Drawing the power of Meranis into her chest, she darted forward with inhuman speed and punched straight for gut.
+She wasn't going to let him get off a summoning call, and by the time he knew to signal an alarm it would be too late.  This far below the Keep, she could feel only the tiniest shine of power from Meranis, but she had a phylactery with her that she had been charging all day. She triggered it with a tap and immediately felt the invisible glow burning on her skin. Drawing the power of Meranis into her chest, she darted forward with inhuman speed and punched straight for gut.
 
 Winded, the soldier doubled over, trying to draw his sword, but it was too late. She whipped her knee up and felt a dull thud as her knee made contact with his head.
 
@@ -47,8 +47,6 @@ And there it was, on the centre of the desk in plain sight: a purple envelope wi
 2.
 ----
 
-
-
 Emlyn couldn't help looking over her shoulder as she headed down the wide streets towards the docks. There was no way anyone could have seen her leave the keep. If they had, she would be dead now. Still, she couldn't shake the feeling every eye was staring at her. 
 
 In the hustle and bustle of the market streets, there was no way to discern a word from the inhuman yells of those trying to sell their wares, all trying to outdo each other in  volume, if not in price or quality. She slipped through the throngs of people all jostling each other as they tried to make their journeys.  
@@ -57,7 +55,7 @@ Stoping only to dissuade a young pick-pocket with a gentle nudge, she headed dow
 
 Finally freeing herself from the crowd, she saw Orin sitting at one of the tables in the sun outside the front of the inn, glass of wine in hand with an empty glass beside the bottle itself.
 
-"What took you so long? I almost finished this bottle by myself", Orin said humorously, a patronising gripping his face. 
+"What took you so long? I almost finished this bottle by myself", Orin said humorously, a patronising grin gripping his face. 
 
 Emlyn sat down next to him, lifted the empty wine glass up to her eye and look at him through it. "You're lying", she said quietly, trying to keep her face as straight as possible. "There is no way you could have known that I would be back so soon". They locked eyes, neither of them wanting to give away their thoughts. "That mean, that you have been waiting here for me to return, to mock me no matter how early I was", she said, placing the glass back on the table, not dropping eye contact for a moment. 
 
@@ -85,11 +83,59 @@ It now seemed so obvious that Orin would never have sent her on a truly importan
 
 Orin knocked his glass back in one full gulp and started pouring himself another glass. "Right, well it seems to me that we must be heading to the races to collect our winnings. And there is no time like the present, so let us finish off this fine bottle and be on our ways, we have a fine day of work ahead of us".
 
-
 3.
 ----
 
-"So where are we headed?"
+They were moving quickly through the streets, back towards the keep.  The cobbled streets were already starting to show signs of the detritus that builds up anywhere that sees thousands of people and animals every day.  Orin rummaged through his satchel as he walked, drawing things out apparently at random, with Emlyn a pace or so behind.  The bonhomie had melted away as soon as they got out of sight of the inn.
+
+"It occurs to me darling Rosie," he said "that your efficiency in completing your errand may have complicated things."
+
+"What do you mean?"
+
+"In the years you've been running errands for me, you have learnt many things.  How many of those things would you say you used today?"
+
+Emlyn dodged a group of children wanting to shine her shoes.  She didn't really know what he was driving at, so she stayed quiet.
+
+"As I thought.  Let's come at this from a different angle. You completed your errand *skillfully* and quickly, correct?"  She nodded. "So, I am pleased with that. However, what is important to me other than efficiency?"
+
+"Being the last at the table."
+
+Orin barked a laugh. "Good answer. Yes indeed, being the last at the table. And seated at that table with us at the moment is our worst enemy." He paused in his flow to turn a corner. "Stop it!" he said suddenly.
+
+"What?"
+
+"You're imagining what he might look like." Orin spun suddenly, grabbing her shoulders and staring into her eyes. Even though she had known him for years and had seen him do this before, it still gave her the chills for a moment at how completely he had transformed himself with the things he had taken from the satchel as he walked. Only the slate grey eyes were the same. "I have not met him, you have not met him, but we know he's there, and he looks like the serving girl at the inn, or the market seller behind his stall.  If you ever do meet him face to face, he will look like whatever he wants to look like.  We didn't have to worry about him so much when we were in Verris, but now as I told you earlier, we are in Ren.  Quickly, tell me two things you would not want him to know about you."
+
+"What I look like and where I'm staying."
+
+"Both things that we don't want him to know, yes, but I'm thinking more fundamental.  Firstly, that you exist at all. Secondly that you are a *drinker*."  He almost hissed the last word.  "Over there is an inn that soldiers on the way back from their shifts occasionally have a beer in.  Draw your cloak around you, go in and sit in the corner on the left.  Don't let anyone see your face."
+
+Emlyn had been waiting in her corner for only a few minutes before Orin came in with a young soldier.  They seemed the best of friends, although the younger soldier walked a little unsteadily and had a bandage around his head.  They sat at the booth on the opposite side of the room, but she found that by moving around a little, she could find a spot where the acoustics let her hear very clearly what he was saying.
+
+"This? Oh it's not as bad as it looks.  I can't talk about it really", he was saying, "my officer told me that this stuff was all very hush hush."  He took a sip of the tankard he'd been given. Orin said something, to which he snorted.
+
+"He was beaten up by a girl you say?  Some of them are surprisingly strong, as I've had reason to know myself.  Do you think there might be a girl planet drinker around?"
+
+Orin said something she couldn't make out, but the sound changed.  She looked across, and saw the young soldier leaning away from Orin, his face contorting with fear.  She moved around until she could hear what Orin was saying:
+
+"not dead right now is because your uncle whom I know to be a solid man vouched for you.  I don't think you understand the gravity of the situation you're in. There's not a man in this city who wouldn't kill you for the reward that would be placed on your head were they to know that you occasionally do jobs for me, and there's not a man in Verris who wouldn't kill you if they knew you were placing my mission here in danger through loose talk. If I have to come and find you again, it will be the last time.  Do I make my meaning clear?"
+
+The young soldier seemed to have something wrong with his throat.  Orin stood up, slapped him jovially on the shoulder, and walked out.  Emlyn waited a short while then followed.
+
+4.
+----
+
+Apparently scaring the soldier had lightened Orin's mood.  He whistled as he walked.
+
+"Was that really necessary?" Emlyn asked.
+
+"You tell me.  I didn't realise you had a phylactery, so I rather expected you to use a little more guile on that one, and if you had, that soldier probably wouldn't have needed reminding that he should keep his opinions to himself. What I hoped you learnt from that is that sometimes it avoids complications to use less direct methods, and the less that you reveal about yourself the better."
+
+"How about the lesson 'if I want something done a particular way, I should explain that before sending someone to do it'?"
+
+"Now *Rosie*, I'm currently in a good mood. Let's keep it that way."
+
+She stayed silent for a while.  "So where are we headed?"
 
 "To meet an old acquaintance of mine" Orin replied, "A real lowlife like myself who has managed to cut a life for himself here."
 
@@ -224,4 +270,3 @@ As the carriage passed another twenty knights brought up the rear. Their searchi
 Just as the crowds were about to disperse Emlyn felt a rough hand grab her arm
 
 "Hey you!" a voice yelled behind her
-
