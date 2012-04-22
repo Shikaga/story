@@ -43,8 +43,11 @@ Blinking, she started to make out the room she had worked so hard to enter. Simp
 
 And there it was, on the centre of the desk in plain sight: a purple envelope with the red seal of Verris stamped on the back. She picked it up, stuffed it in her bag, locked the door behind her and headed back down the corridor the way she had come. Ten minutes later she was back in the bright sunlight, looking over the sea surrounding the city of Ren. 
 
+
 2.
 ----
+
+
 
 Emlyn couldn't help looking over her shoulder as she headed down the wide streets towards the docks. There was no way anyone could have seen her leave the keep. If they had, she would be dead now. Still, she couldn't shake the feeling every eye was staring at her. 
 
@@ -92,68 +95,133 @@ Orin knocked his glass back in one full gulp and started pouring himself another
 
 "Going to catch up on old times?" Emlyn asked
 
-"Something like that. But if there is one thing I know about Gat it is that he always knows more than he should. And unless I am very much mistaken he will be in need of a little coin"
+"Something like that. But if there is one thing I know about Ben it is that he always knows more than he should. And unless I am very much mistaken he will be in need of a little coin"
 
 They headed along the harbour water, once again braving the crowds. Orin took long commanding strides towards his target. He slipped through the crowds, never once stopping for others, but no one ever seemed to notice him. His easy, elegant walk didn't ask for other people to let him through, he simply did. Emlyn hurried along in his wake.
 
 Passing through the market the mouth-watering odours of freshly cooked fish and hot bread hit Emlyn. Suddenly breakfast seemed so long ago, and the wine was leaving her light headed. Fumbling for her purse, she acquired a couple warm loafs of bread.
 
-“Here we are” Orin announced, approaching the grimiest pub that Emlyn had ever seen. The walls, presumably once white, were were water stained to the point where Emlyn wouldn’t have been surprised if they had barnacles stuck to them. A heavily faded sign above the door announced that they were entering The Fish Wife.
+"Here we are" Orin announced, approaching the grimiest pub that Emlyn had ever seen. The walls, presumably once white, were were water stained to the point where Emlyn wouldn't have been surprised if they had barnacles stuck to them. A heavily faded sign above the door announced that they were entering The Fish Wife.
 
 The inside confirmed what the outside promised. The stench of vomit and sweat hung heavy in the air from the raucous party the night before and the endless evening of drunken debauchery before. Its current patrons were still sober, but come the end of their menial shift on the dock that evening, they would transform into a hailstorm of drunken slurs, wild threats and unskilled brawling. 
 
-“Hey ho, Jacko” Orin exclaimed, throwing his arms in an embrace around a man who lifted him off the ground in a huge bear hug.
+"Hey ho, Jacko" Orin exclaimed, throwing his arms in an embrace around a man who lifted him off the ground in a huge bear hug.
 
-“So good to see you again old friend” the man replied.
+"So good to see you again old friend" the man replied.
 
-Orin hadn’t lied about meeting a lowlife. Everything about the man told of his daily battles. He was large; a good half a head taller than Orin, and twice, with arms which Emlyn reckon could have picked up a warhorse. With armour on. His face held so many cuts that it could easily have been mistaken for a map of a faraway land at first glance. And some of them were clearly fresh.
+Orin hadn't lied about meeting a lowlife. Everything about the man told of his daily battles. He was large; a good half a head taller than Orin, and twice, with arms which Emlyn reckon could have picked up a warhorse. With armour on. His face held so many cuts that it could easily have been mistaken for a map of a faraway land at first glance. And some of them were clearly fresh.
 
-But despite all this, Emlyn couldn’t help but feel affection for him. It was something about his smile, the way that it went all the way to his eyes. 
+But despite all this, Emlyn couldn't help but feel affection for him. It was something about his smile, the way that it went all the way to his eyes. 
 
 The man released Orin from his embrace, returning him to the floor, where they started shaking hands. 
 
-“Gonna be sundown by the time you too are done greeting each other” said the barman sarcastically.
+"Gonna be sundown by the time you too are done greeting each other" said the barman sarcastically.
 
-“Right you are Tom” <<Barmen are always called Tom>> said the man. “Please, two of your best beers and a…” he said trailing off as he made eye contact with Emlyn.
+"Right you are Tom" <<Barmen are always called Tom>> said the man. "Please, two of your best beers and a…" he said trailing off as he made eye contact with Emlyn.
 
-“Oh how rude of me” said Orin “Jack let me introduce Rosie, my niece. Rosie this is my old friend Jack”
+"Oh how rude of me" said Orin "Jack let me introduce Rosie, my niece. Rosie this is my old friend Jack"
 
-“Hey who are you calling old?” Jack retorted “You are old enough to be her father!”
+"Hey who are you calling old?" Jack retorted "You are old enough to be her father!"
 
-“Well yes, like I said, she is my niece”
+"Well yes, like I said, she is my niece"
 
-“Well what will your niece be having?” the barman interrupted, pulling down the glasses off the shelf behind him. “And I hope she can pay for you all, I can’t remember the last time Jack paid his tab”
+"Well what will your niece be having?" the barman interrupted, pulling down the glasses off the shelf behind him. "And I hope she can pay for you all, I can't remember the last time Jack paid his tab"
 
-“Come now, I thought that was water under the bridge Tommy”
+"Come now, I thought that was water under the bridge Tommy"
 
-“Beer down your throat more like. And not a copper piece to show for it” the barman replied
+"Beer down your throat more like. And not a copper piece to show for it" the barman replied
 
-“Don’t you worry, these are on me” said Orin placing a silver coin on the bar. The coin disappeared into the barman’s hand so fast that Emlyn could have sworn he must have been a magician.
+"Don't you worry, these are on me" said Orin placing a silver coin on the bar. The coin disappeared into the barman's hand so fast that Emlyn could have sworn he must have been a magician.
 
-“I’ll have a half” Emlyn said hopefully.
+"I'll have a half" Emlyn said hopefully.
 
-“You most certainly will not!” Orin said light heartedly. “What would your mother say? Why I doubt, she would ever let me under her roof again, if she heard I had let you drink!”. 
+"You most certainly will not!" Orin said light heartedly. "What would your mother say? Why I doubt, she would ever let me under her roof again, if she heard I had let you drink!". 
 
-Jack laughed good naturedly. “Go on Ben, just a half”
+Jack laughed good naturedly. "Go on Ben, just a half"
 
-“Absolutely not, she will have cup of tea”
+"Absolutely not, she will have cup of tea"
 
-“’Fraid you out of luck mate” the barman replied. “Does this look like Queens garden party? Best I can do is water if the ladies not drinking”
+"'Fraid you out of luck mate" the barman replied. "Does this look like Queens garden party? Best I can do is water if the ladies not drinking"
 
-“Water it is then”.
+"Water it is then".
 
-They took their drinks and sat down at an empty table. They started talking about old times and what were they doing in Ren. Orin told the lies they had practiced so many times. Jacks eyes betrayed that he could tell something didn’t quite add up, but he never said a word.
+They took their drinks and sat down at an empty table. They started talking about old times and what were they doing in Ren. Orin told the lies they had practiced so many times. Jacks eyes betrayed that he could tell something didn't quite add up, but he never said a word.
 
 Once they had finished their drinks Orin leant his head in conspiratorially and started speaking in a hushed whisper.
 
-“We are going to have a private talk, stay here Rosie, we will be back in a little bit” said Orin.
+"We are going to have a private talk, stay here Rosie, we will be back in a little bit" said Orin.
 
-“Not a chance old friend”, Jack broke in. “It has been okay while I have been here but the second I leave half this bar is going to start making a move on this beautiful flower of yours”
+"Not a chance old friend", Jack broke in. "It has been okay while I have been here but the second I leave half this bar is going to start making a move on this beautiful flower of yours"
 
-“I can take care of myself” Emlyn said defiantly.
+"I can take care of myself" Emlyn said defiantly.
 
-“I am sure you can. But I am sure you two don’t want to draw attention to yourselves” he said conspiratorially.
+"I am sure you can. But I am sure you two don't want to draw attention to yourselves" he said conspiratorially.
 
-“He’s right Rosie, why don’t you go back to the market, we will meet you there in half a bell.”
+"He's right Rosie, why don't you go back to the market, we will meet you there in half a bell."
 
 They left the pub and Orin and Jack headed into a back alley on the left while Emlyn slowly made her way back to the market.
+
+
+4.
+----
+
+Emlyn wandered around the market, dragging her heels, trying not to look at everything too quickly and be forced to go around again. She couldn't help feeling slightly left out when Orin went off by himself. She understood the importance of discretion. Informants were a lot more open when they were talking to people that they knew well. And Orin would fill her in on any of the important details later.
+
+But that didn't make it any less annoying. There was something about being a spy, you craved information, no matter how unimportant or inconsequential. And there was nothing more galling than being told that there was something that you couldn't know. 
+
+Finding a low sea wall, Emlyn sat down and pulled a book from her coat pocket. A particularly dry account of the history of Kingdom of Kris, it's capital Ren and their countless wars against Verris. The historian was of course completely biased. 
+
+The evil of the Kingdom of Kris held knew no bounds. While noble knights of Verris fought with bravery and cunning, the evil forces of Kris we sinful to their bone, raping and pillaging their way across the lands. 
+
+But that was nothing to say of their King and Queen. A family so evil no one had dared challenge them for hundreds of years, for fear of their retribution.
+
+The line between truth and lies were subtle. A man who is described a murderous warlord in one book, will be declared a defender of the innocent in the next. Both could be true.
+
+Of course, whether they were good or bad, just or malevolent, didn't really interest Emlyn. Her years of training in the Royal Palace had drilled the importance of following orders.
+
+What would happen if you told your arm to move, and it decided not to? Or if your one leg decided to walk and the other did not? To work effectively, your legs must trust the orders from your head assuring it that there were no cliffs ahead. 
+
+Kingdoms were just like people. Your mines and farms were your legs, providing you with the your means to propel you through life. Your Armies were like your arms, defending you from others.
+
+And she was the Eyes of the King. The Royal Spies provided The Crown all the information it needed to make the life and death decision the king made every day. Where armies were being marched, supplies being shipped, alliances being broken; all these were the coin of espionage. And of course, more valuable than all of these combined was information about Planet Drinkers.
+
+Few in number, remnants of the ancient royal families, Planet Drinkers were ultimate weapons in hands of every royal family. Their ancient blood gave them powers beyond imagining. The power to fight, hide, <<blah blah>> on a super human level. Even a faintest whisper of a young prince being a Drinker would be enough for a battalion of spies to be deployed to investigate the claims.
+
+Of course the history books had loads to say about the Planet Drinkers. How the unusual celestial order of the planets, the source of all Drinkers power, had allowed a previously weak nation to rise to extrodinary heights, before being destroyed as the planets moved inexorably along their paths allowing another nation to rise.
+
+For Emlyn, being a Planet Drinker had never been much of a blessing. She supposed it could have been worse, had she been born in Kris, she would likely have been murdered, and her entire family with her if it had been discovered that a Drinker had been born so far outside of the royal line.
+
+Still, in Verris drinkers were considered property of the crown, tools to be used, sharpened and maintained, to be deployed in defence of the kingdom at a moment's notice. 
+
+She knew that she should be happy. To be placed in the House of Eyes was one of best outcomes she could have received. Provided as a precious resource, she was one of the only to Drinkers of the House. At the age of 6 she had been assigned to Orin one of the most accomplished spies in the kingdom. Tough not a Drinker, at 35 Orin was at the peak of his fame and power. Well, fame as far as spies could achieve; it was well known among the Council of Elders that Orin was the man to get the job done. But knowing that is strength would soon begin to wane, he knew that it was time to take on an apprentice.
+
+Of course, she showed nothing but contempt to Orin when she first came under his tutelage. Young and scared, her 6 year old self hated everything and everyone; the kingdom for their unjust laws, Orin for his imprisonment of her and most of all her mother, for not protecting her.
+
+Thinking about that time just embarrassed her. It now seemed so clear to her why things had to be the way they were. All things considered her life had turned out rather well. She was strong, fit and well taught. She was well thought of by the House and given ten years she could be the youngest person to ever be elected to the Council of Eyes. Her mother was doing well, and they saw each other often enough and, most important of all, Emlyn had a job that she loved.
+
+There was nothing quite as exciting as trespassing where you weren't wanted. The thrill of game, the excitement of knowing what you shouldn't; it was unlike anything else, a drug that you couldn't duplicate. 
+
+A sudden roar of noise jolted Emlyn from her thoughts. The crowd started boil as everyone started talking at once.
+
+"They're coming. The king is coming!" someone yelled, nearly hysterical, running down the road, informing everyone he came across.
+
+The people all stopped what they were doing and started to head to the road.
+
+"You there, get off your ass and salute your King!", yelled a guard, marching through the market, following the path that the man before him had just taken.
+
+Emlyn locked eyes with the guard confrontationally, before putting her book away and slowly started walking to the road. The guard stared her down, before continuing on his way shaking his head and urging other passers-by to head to the road.
+
+She squeezed past the people to get to the front of the throng standing on both sides of the road. Following the examples of all the other citizens, Emlyn put her fist to her chest, saluting as the first horses of the royal procession came down the street.
+
+It was a fine sight, twenty knights in full parade regalia headed the procession, followed by twenty of the kings personal guard. And then the kings personal carriage passed by. 
+
+Painstakingly crafted, it glittered like a jewel in the bright sunlight. It had been carved to perfection, and covered entirely in gold gilt. Tiger motifs were present through-out the carriage, the official seal of Kris used to point where it became more vulgar than impressive.
+
+The curtains were drawn; no doubt the king didn't want to see the dockworker, merchants, beggars and other lowlifes on his way to his ship.
+
+As the carriage passed another twenty knights brought up the rear. Their searching eyes scanned the crowds, just waiting for an excuse to "deal" with someone who stepped out of line. 
+
+Just as the crowds were about to disperse Emlyn felt a rough hand grab her arm
+
+"Hey you!" a voice yelled behind her
+
