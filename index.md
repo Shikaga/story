@@ -208,7 +208,7 @@ Once they had finished their drinks Orin leant his head in conspiratorially and 
 They left the pub and Orin and Jack headed into a back alley on the left while Emlyn slowly made her way back to the market.
 
 
-4.
+5.
 ----
 
 Emlyn wandered around the market, dragging her heels, trying not to look at everything too quickly and be forced to go around again. She couldn't help feeling slightly left out when Orin went off by himself. She understood the importance of discretion. Informants were a lot more open when they were talking to people that they knew well. And Orin would fill her in on any of the important details later.
@@ -270,3 +270,45 @@ As the carriage passed another twenty knights brought up the rear. Their searchi
 Just as the crowds were about to disperse Emlyn felt a rough hand grab her arm
 
 "Hey you!" a voice yelled behind her
+
+6.
+---
+
+Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
+
+Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once already.  To be away from that shining was to be vulnerable, to be weak.  There was no escaping that feeling of course when it was below the horizon.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.
+
+Instinctively as the hands grabbed her, she started to convert the shine to power, but she quickly realised that strength would be the wrong approach and concentrated on her breathing to dissipate it. The man who had grabbed her wore no surcoat or arms, but the boiled leather and nasty looking mace had obviously seen real use.
+
+"What is it?" she asked as meekly as she could manage.
+"My master will speak to you" he said, nodding towards a small group of Knights who had detached themselves from the procession, circled back and taken up a position on the opposite side of the market square from her.
+
+The man she took to be leader of the group sat astride a massive war horse.  Like the man himself, the equipment he wore was plain but well made.  He had a scar cutting across his head to the top of a ruined ear.  As Emlyn approached, he was talking to someone on the ground, who mounted his horse athletically as she was hauled to a stop in front of them.
+
+The man who had been on the ground was young, only a few years older than Emlyn.  He was dressed in much less severe clothes, and had long hair tied up at the back.  He waved his left hand as he spoke to the man holding Emlyns arms.
+
+"Oh do let her go, Brid, I only wanted to talk to her,"  Brid held her firm.  "I'm sorry, I just saw you were reading a book that I've been studying recently. It's surprising how little interest some people have in their own history."
+
+Emlyn was worried.  Had this man really recognised a particular book across a crowded market place?  How much trouble was she in?
+
+"I see you're surprised," he said, flashing a smile, "I've always had good eyesight, and I guess maybe there was something about you that drew my eye.  Why haven't you let her go Brid?"  He was waving his left hand again.
+
+Brid didn't speak, but the larger man on the warhorse did.
+
+"The book you mentioned is one banned in Kris your highness"
+
+"What?  Oh don't be silly, I've read it a dozen times."
+
+The man sighed and spoke slowly, as if explaining to an imbecile, "yes, but you are a prince of the blood.  She is obviously a foreigner. Your situations are quite different. For her, owning such a book is punishable by a month in prison for the first offence, while you have to be able to read such books in order to be able to take part in decisions about what punishment is appropriate for others who read it. Brid, get her papers and search her things."
+
+Emlyn was starting to feel scared. A month in prison? She thought her papers were in order, but if they searched her things and found the Planet Well, would they know what it was?  Prison would be the least of her worries.  She might have to try to escape despite the difficulties it would cause.
+
+The prince looked worried suddenly.  "Hey, wait a minute.  I'm sure she's just recently arrived and probably doesn't know our laws, we should be lenient right?"  He was smiling at Emlyn but apparently talking to the big man on the horse.
+
+"That's not how we do things your highness.  Ignorance is no excuse. She's my prisoner and I'm taking her to be questioned."
+
+"I was the one who sent Brid over wasn't I?  Doesn't that make her my prisoner?"
+
+The big man sighed again.  "If I hand her over to you, and you just let her go I'm making a formal complaint.  She could be a spy or a rebel.  I've already heard rumors that Verris has sent someone to agitate again."
+
+"Fine, I'll question her myself, and if I decide she's a spy I'll let you know immediately."  The prince looked serious until the big man nodded a grudging acceptance, then he smiled at Emlyn, "Excellent,  we better do the questioning fairly soon.  How's tomorrow evening?  At seven? There's a lovely inn, the Crown on the Waters, near the keep, ask anyone for directions."  He caught Emlyns eye, then wheeling his horse, he rode off in the same direction the procession had taken.  The other Knights just sat there for a moment, then with scattered cursing they rode off too, leaving Emlyn standing alone at the side of the road wondering what had just happened.
