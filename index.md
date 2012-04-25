@@ -142,10 +142,10 @@
      6.
      ---
      
-     “Ahhh”, Emlyn yelled jumping on the spot and spinning around violently, heart racing, pulling on the power of Meranis instinctively. 
-     “Woah, calm down”, a man said, releasing her and taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
+     “Ahhh”, Emlyn yelled jumping a foot in the air, her heart racing. Wresting herself free, she turned on her attacker, a look of fear and danger on her face.
+      “Woah, calm down”, the man said, taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
      “Sorry, didn’t mean to startle you” he said, reassuringly, “I was just trying to get your attention.”
-     Emlyn stared at him for a moment, before taking a deep breath, letting the power of Meranis, leave her once again. “That’s okay, what do you want?” she said, straightening her hair unconsciously.
+     Emlyn stared at him for a moment. She noticed that she was suddenly holding the power of Meranis, her instinct to save herself overriding her years of meditation. She took a deep breath, letting the power of Meranis leave her. “What do you want?” she said, straightening her hair unconsciously.
      “Oh sorry, I just noticed what you were reading, ‘The Antiquity of Krisdom’ by Engust Dalson?’ he said questioningly.
      “What?”
      “Err, the book. That you are reading. It’s right there, in your pocket” he said pointing.
