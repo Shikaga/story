@@ -146,7 +146,7 @@
      “Woah, calm down”, a man said, releasing her and taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
      “Sorry, didn’t mean to startle you” he said, reassuringly, “I was just trying to get your attention.”
      Emlyn stared at him for a moment, before taking a deep breath, letting the power of Meranis, leave her once again. “That’s okay, what do you want?” she said, straightening her hair unconsciously.
-     “Oh sorry, I just noticed what you were reading, ‘The Antiquity of Krisdom’ by Barnard Shaw?’ he said questioningly.
+     “Oh sorry, I just noticed what you were reading, ‘The Antiquity of Krisdom’ by Engust Dalson?’ he said questioningly.
      “What?”
      “Err, the book. That you are reading. It’s right there, in your pocket” he said pointing.
      “Yeah so?”, said Emlyn coldly, still staring at him.
@@ -175,7 +175,7 @@
      Emlyn could feel Roberts eyes on her as she briskly walked in Orin’s direction. Silently signalling Orin to follow her, she ducked down a sidestreet and out of sight.
      “Meet someone?” Orin asked.
      “Just some guy at the market”
-     “Excellent. Well, I have some news. Best that we were on our way” Orin said, striding off towards their Inn, with Emlyn following close behind.
+     “Excellent. Well, I have some news. Best that we were on our way” Orin said, striding off towards their Inn, with Emlyn following close behind. 	
      
      
       
