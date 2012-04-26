@@ -1,4 +1,4 @@
----
+﻿---
 layout: main
 ---
 1.
@@ -177,6 +177,26 @@ Emlyn could feel Roberts eyes on her as she briskly walked in Orin’s direction
 “Just some guy at the market”
 “Excellent. Well, I have some news. Best that we were on our way” Orin said, striding off towards their Inn, with Emlyn following close behind. 	
 
+7.
+---
+They sat at their small desk in their room at the Apple Pony, the windows flung open to try and entice any small night breeze into the humid room. The desk had been pulled from its original position facing the wall and placed in the centre of the room. The desk was covered by a large map of the city of Ren and a variety of documents sat on top of that, with Orins smoking box holding down one end of the map and an empty candlestick holding down the other.
+“So, it appears that events move quickly without us. It seems that Kris is preparing for war.” Orin said. “I suspect that this fact is already well known in Verris by now, but in our travels, we must have missed the message.”
+Orin took his pipe from his pocket and slowly and methodically started to fill it it. Once he was satisfied that it was just the way he wanted, he stood up, pulled a taper from the mantle and lit his pipe from a candle.
+“Our mission has not changed. Whatever developments may have occurred, there is no way for The House to contact as, and we must do our jobs quickly and effectively. Once we have achieved our objectives, we can return home via the fastest possible route and deliver our reports”
+Orin started to suck on his pipe thoughtfully. Emlyn just sat, waiting for him to finish. When he was in this mood, it was best to let him speak out loud and wait for him to ask her a direct question.
+“<Towit>, we need to somehow put our hands on as much information about the current state of their military as soon as possible. Now, as it so happens, before we arrived, I got wind of a man who might be happy to provide us with such information, for the right price that is.”
+Orin pulled on his pipe again, his eyes looking over the glowing bowl conspiratorially. Here it comes, Emlyn thought, he is wondering whether I have figured it out for myself yet. But she was still at a loss as to what things Orin expected her to have put together.
+“This man, a senior quartermaster as it so happens, has a thing for the horses. A fine distraction for most men, but for some, a disease worse than any plague”.
+Everything suddenly clicked. “Yes, a man like that can get into quite a bit of debt, loose every last penny he has. And then, take more than a few pennies that he doesn’t have, and make a bet which will put all his debt straight.” Emlyn explained with glee.  
+“Finding himself so far over the edge, any man would give away a little information to someone who could save him from his fate. You basically had a sure thing, if you pardon the pun. But then his horse won! What were the chances?”
+Orin was smilling at her now, his proud eyes lit by his pipe, letting her explain her brilliant deductions.
+“Of course you couldn’t have that. It was necessary to ensure that he would misplace his betting card before he could cash it. And then he would have no choice but to take your hand”
+“No choice?” asked Orin. “Why wouldn’t he just claim that the money he took from the coffers was stolen by the break in this morning?”
+“Hmm”. Yes, that would be the logical choice of action, Emlyn thought. By breaking in I gave him the perfect excuse to explain away any money that he may have lifted from the military coffers. “I don’t know”
+“Hmmm” Orin said, imitating her contemplative look. “Well, why don’t you think about it some more. See if you can figure it out”.
+Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. “Ahhh, here we go”. TBC.
+
+ 
 
  
 
