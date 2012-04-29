@@ -215,6 +215,25 @@ Funny thing Emlyn thought, that people would make such judgements based on your 
 
 Emlyn watched from the shadows as a group of drunks heading home together, half stumbling half crawling to down the street. Their voices grew louder as they passed her, threats of violence interspersed with drunken slurs of fraternal love and raucous laughter. As they passed and voices started to disappear in the foggy night air, the door cracked open again and Orin emerged, and headed back in the direction of the inn.
 
+“So, how did that go?” Emlyn asked as she caught up with him.
+“Very well, for all parties involved. We have some very boring documents and our quartermaster will no longer be in the debt of men who break fingers.” Orin chuckled to himself. “Well, I must say, I can’t think of the last time I have had such a productive day. Let us get home before anything spoils it.
+
+9.
+---
+
+When Emlyn woke the sun was already well over the horizon, probably about eighth bell. She rose from her bed and washed in the basin of cold water before donning her favourite red dress and combing her hair thoroughly. This done, she added her matching butterfly hairclips to hold back her hair from falling in her face.
+
+Leaving her room she found Orin at the desk pouring over a red book filled with numbers and figures. His glasses looked odd on him, as though he was a different person entirely. Older, more learned. Without looking up he moved his fountain pen from where it hovered over his own book of pristinely copied notes and placed it back on the table and closed the bottle of ink. 
+
+“Breakfast?” he inquired. 
+“Sounds good.” Emlyn replied, suddenly aware of how hungry she was.
+
+They headed down to the common room and the sat down at their usual table and were approached immediately by a waiter. Orin ordered their usual breakfast.
+
+
+“It is amazing how much information can be held in numbers Roise” Orin said after the waiter had retreated a sufficient distance. “Why, some would think that the fact that 2 tons of iron were shipped to a bell founder was some management slip up. I see cannons, being produced faster than the military can handle it”. 
+
+And what would you make of a constant increase in the amount of grain being delivered to the local barracks? Or the sudden jump in gold being sent to the provinces of Kris?”
 
 
 <Great sentences, need to go elsewhere>Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
