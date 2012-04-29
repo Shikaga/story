@@ -42,6 +42,7 @@ It now seemed so obvious that Orin would never have sent her on a truly importan
 "Of couse my dear Rosie, we are in Ren, not Verris. Why even a sixteen year old such as yourself can drink a little wine!" he said lightly. "Now come", Orin continued, "To good fortunes!"
 "To Good fortunes" Emlyn replied and she started to sip her wine. 
 Orin knocked his glass back in one full gulp and started pouring himself another glass. "Right, well it seems to me that we must be heading to the races to collect our winnings. And there is no time like the present, so let us finish off this fine bottle and be on our ways, we have a fine day of work ahead of us".
+
 3.
 ----
 They were moving quickly through the streets, back towards the keep.  The cobbled streets were already starting to show signs of the detritus that builds up anywhere that sees thousands of people and animals every day.  Orin rummaged through his satchel as he walked, drawing things out apparently at random, with Emlyn a pace or so behind.  The bonhomie had melted away as soon as they got out of sight of the inn.
@@ -62,6 +63,7 @@ Emlyn had been waiting in her corner for only a few minutes before Orin came in 
 Orin said something she couldn't make out, but the sound changed.  She looked across, and saw the young soldier leaning away from Orin, his face contorting with fear.  She moved around until she could hear what Orin was saying:
 "not dead right now is because your uncle whom I know to be a solid man vouched for you.  I don't think you understand the gravity of the situation you're in. There's not a man in this city who wouldn't kill you for the reward that would be placed on your head were they to know that you occasionally do jobs for me, and there's not a man in Verris who wouldn't kill you if they knew you were placing my mission here in danger through loose talk. If I have to come and find you again, it will be the last time.  Do I make my meaning clear?"
 The young soldier seemed to have something wrong with his throat.  Orin stood up, slapped him jovially on the shoulder, and walked out.  Emlyn waited a short while then followed.
+
 4.
 ----
 Apparently scaring the soldier had lightened Orin's mood.  He whistled as he walked.
@@ -139,9 +141,9 @@ As the carriage passed another twenty knights brought up the rear. Their searchi
 One guard in particular stood out to her. He locked eyes directly with her. As he rode, his persistent gaze held her in place, and worry started to fill her. Did he recognize her? Had she been seen by someone in keep?
 Emlyn felt a rough hand grab her shoulder.
 "Hey" a voice yelled behind her
+
 6.
 ---
-
 “Ahhh”, Emlyn yelled jumping a foot in the air, her heart racing. Wresting herself free, she turned on her attacker, a look of fear and danger on her face.
  “Woah, calm down”, the man said, taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
 “Sorry, didn’t mean to startle you” he said, reassuringly, “I was just trying to get your attention.”
@@ -194,11 +196,7 @@ Orin was smilling at her now, his proud eyes lit by his pipe, letting her explai
 “No choice?” asked Orin. “Why wouldn’t he just claim that the money he took from the coffers was stolen by the break in this morning?”
 “Hmm”. Yes, that would be the logical choice of action, Emlyn thought. By breaking in I gave him the perfect excuse to explain away any money that he may have lifted from the military coffers. “I don’t know”
 “Hmmm” Orin said, imitating her contemplative look. “Well, why don’t you think about it some more. See if you can figure it out”.
-Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. “Ahhh, here we go”. TBC.
+Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. “Ahhh, here we go”. TBC. 
 
- 
-
- 
-
-<Great sentences, need to go elsewhere>Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
-Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.<end>
+Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
+Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.
