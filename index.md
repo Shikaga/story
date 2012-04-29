@@ -235,6 +235,51 @@ They headed down to the common room and the sat down at their usual table and we
 
 And what would you make of a constant increase in the amount of grain being delivered to the local barracks? Or the sudden jump in gold being sent to the provinces of Kris?”
 
+They all point to war. A war the likes of which we have never seen. And I suspect that we are not prepared. The question is, what information can we retrieve that will land a killing blow before it begins?”
+
+“It’s going to be the Planet Drinkers isn’t it? We are going to have to neutralize them. If we have our Drinkers and they don’t have theirs, we can easily turn back their armies when the planets are in phase.”
+
+Something about this just seemed sad to Emlyn. The Drinkers didn’t ask for any of this, they just happened to be born on the wrong side of the world, and for some reason that meant that they would have to be killed.
+
+“If you are feeling some kind of loyalty to the Drinker of Kris, don’t” Orin said. “I understand the feeling, you both share a bond. But what about all those soldiers who are going to die on the battlefields? They are just as much human as you are, but they too are going to die because they follow the wrong King.”
+
+Emlyn saw the logic behind Orin’s words, but it didn’t change how she felt. She did feel a connection, to all the Planet Drinkers. There was something that most people couldn’t understand. There was a pain to being born a weapon, a possession of the state. Most people could make choices; they could live their own lives. She never could.
+
+“I will do my duty. We will do our duty” she said, with a tone somewhere between determination and resignation.
+
+“You are young, one day you will understand the sacrifices that need to be made for the greater good” Orin said quietly, but he didn’t quite meet her eyes.
+
+They spent the day going through the documents, Orin making notes about his suspicions and discussing his thoughts with Emlyn. Emlyn wondered to himself where whether such rampant speculation actually produced any actionable evidence. Indeed, it seemed to Emlyn, all one would have to do to ensure that your enemy surrendered immediately was to write down that you had ordered one million uniforms for your army and ensure that their spies received a copy.
+
+But there was definitely a method to his madness, and by the time it was the fourth bell after lunch, Orin had drawn conclusions that Emlyn could not deny. Orin sat back and started on his pipe again, carefully compacting the leaf into the bowl, lighting it and pulling on the smoke smoothly.
+
+“The question now, is what further information can we glean, now that have the first clue”, Orin said thoughtfully. “The data that we have now, is strategically valuable, plenty here about troop numbers and deployment location. But most of that will be provided by our eyes and ears in the field. One can only move a body of men so quickly, we will have that information in time to act on it no matter what. No, we need to provide The House with something further, something truly shattering”.
+
+Orin went off into yet another one of his trances, and Emlyn figured it was best to give him some time. She pulled out her book once again, pulled both of her feet onto the chair so that she sat in a crouched position, and started to read.
+
+There was something about history. It brought about a certain feeling of inevitability in her. When most people read a history book, they would think about all the things that once happened long ago. When Emlyn read a history book, she thought about all the things that were going to happen again in the future.
+
+I mean, when you consider that Verris and Kris have been to war three times in the last two hundred years, how could we not be due another one after three hundred years of peace? Of course, if her mathematics tutor knew what she was thinking would have given her a very stern talking to about prior results affecting future events, but then again, Emlyn thought that Mathematicians didn’t really understand the real world.
+
+No, this was bound to happen. And with the planets in the positions they were in now, Verris was very exposed. Legudis, the planet of the people of Kris, was coming into its most powerful phase in over a century. It provided the Planet Drinkers of Kris with unlimited agility.
+
+Many people thought Emlyn was fast. When she kicked or punched, they swore that she simply moved her limbs from one place to the other without going through the space between. Yet, this paled in comparison to the recordings of the Planet Drinkers of Legudis. One Legudis Drinker could slit the throat of a hundred men, before one of them to could draw his blade. What good was her strength, if her enemy simply sliced her throat the second she saw them?
+
+And if that wasn’t bad enough, Meranis was going out of phase, and would not be at its strongest again for more than two years. An attack now would be deadly. There had to be something they could do, some way to reverse the oncoming apocalypse. 
+
+The chimes rang out for fifth bell. “I’m going out” Emlyn said. Orin looked up at her, locked her with his sharp stare, before saying “Okay”. 
+Emlyn got up to leave, grabbed her warm coat and her bag and headed out the door.
+
+Wow, that was easy Emlyn thought. She had been expecting a fight, Orin demanding to know where she was going, insisting that she was putting herself in way too much danger heading out to see a boy so close to nightfall. She had already rehearsed in her head telling Orin that she could take care of herslf, thank you very much, to which Orin would reply that he was perfectly aware of that, but that she might expose herself, that they would know that there was a Drinker in the city. She would then reply that after stealing the book the yesterday they probably already knew, and besides, she would be careful.
+
+But no, Orin just let her go. That was all the more concerning. Had he already figured everything out, knew where she was going and who she was meeting? Quite possible, you didn’t become a head spymaster without being able to know things that there was no way that you could know. But then again, maybe he just trusted her. Perhaps he just believed that she would not do anything stupid. Perhaps he was expecting her to come back with a key piece of information that would be the key to their victory.
+
+“Anngghh”, Emlyn yelled as she headed down the stairs and out of the Inn. How was it that with a single word Orin could put her so much on edge? He probably didn’t even realise that he had made her so anxious, he had probably gone straight back into his trance, plotting and scheming their way to triumph.
+
+And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, best to just hope that the odds are in your favour, and she headed to the docks to meet Robert.
+
+Notes
+---
 
 <Great sentences, need to go elsewhere>Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
 Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.<end>
