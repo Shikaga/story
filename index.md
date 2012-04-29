@@ -196,9 +196,26 @@ Orin was smilling at her now, his proud eyes lit by his pipe, letting her explai
 “Hmmm” Orin said, imitating her contemplative look. “Well, why don’t you think about it some more. See if you can figure it out”.
 Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. “Ahhh, here we go”. TBC.
 
- 
+8.
+---
 
- 
+The city looked different at night. Gone were the beggars, merchants and pedestrians, trying to make their way through the packed streets. Now the city belonged to the footpads and criminals, hoping to get lucky and stumble onto those fortunate enough to return from the pub with money still in their pockets.
+
+The city guard took their patrols through the wide boulevards of the inner city, ensuring that no one disturbed the lives of those rich enough to pay the exorbitant rates the noble families set. But, beyond that you were on your own. Of course, that was good if you were one of those people who were up to no good. And Orin and Emlyn most certainly fell into that category.
+
+The trick with travelling at night, was to look like neither a criminal nor a victim, a difficult balance to strike. More than anything, it was how you carried yourselves. As they walked down the road you could see the brigands and ruffians muttering to themselves, before noticing swords and the look of absolute self-confidence that Orin and Emlyn held, and decided that they wanted none of it.
+
+Orin navigated them through the streets and allies with his ever present coolness. He finally stopped, looked around for anyone who might have noticed them. “Okay, here we are. Our quartermaster is in the house with the red door”, Orin whispered, indicating. “As we have already discussed, there is no assurance that this isn’t a trap. You know what to do if everything goes south?”. Emlyn nodded. “Okay, let’s take a quick look around and then I will go for it. You stay here and warn me if anything happens.”
+
+They took a few minutes to look around the neighbourhood, before Orin crossed his way to the door and knocked firmly. A few seconds went by and the door cracked open. A face appeared before swinging the door open to admit Orin and closed behind him.
+
+Suddenly feeling very alone, Emlyn looked around rapidly for anyone who might be approaching, but the street was dead quite. If she had been dressed in her usual dresses she probably wouldn’t have lasted two seconds on the street before every brigand was after her. But disguised as boy with a sword at her side anyone who looked at her would see a mercenary, if a short one, no doubt waiting to escort their master during his shady dealings.
+
+Funny thing Emlyn thought, that people would make such judgements based on your looks. If she had was stood here as a woman, she would be seen as easy pickings, a lamb to the slaughter. And yet, disguised as a mercenary, she didn’t reflect even a candle of her true threat. A mask on a mask. A weapon, disguised as a woman, disguised as a mercenary.
+
+Emlyn watched from the shadows as a group of drunks heading home together, half stumbling half crawling to down the street. Their voices grew louder as they passed her, threats of violence interspersed with drunken slurs of fraternal love and raucous laughter. As they passed and voices started to disappear in the foggy night air, the door cracked open again and Orin emerged, and headed back in the direction of the inn.
+
+
 
 <Great sentences, need to go elsewhere>Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
 Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.<end>
