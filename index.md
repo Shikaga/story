@@ -346,7 +346,7 @@ Orin took his pipe from his pocket and slowly and methodically started to fill i
 
 Orin started to suck on his pipe thoughtfully. Emlyn just sat, waiting for him to finish. When he was in this mood, it was best to let him speak out loud and wait for him to ask her a direct question.
 
-“<Towit>, we need to somehow put our hands on as much information about the current state of their military as soon as possible. Now, as it so happens, before we arrived, I got wind of a man who might be happy to provide us with such information, for the right price that is.”
+“To wit, we need to somehow put our hands on as much information about the current state of their military as soon as possible. Now, as it so happens, before we arrived, I got wind of a man who might be happy to provide us with such information, for the right price that is.”
 
 Orin pulled on his pipe again, his eyes looking over the glowing bowl conspiratorially. Here it comes, Emlyn thought, he is wondering whether I have figured it out for myself yet. But she was still at a loss as to what things Orin expected her to have put together.
 
