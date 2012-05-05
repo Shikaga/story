@@ -1,6 +1,74 @@
----
+﻿---
 layout: main
 ---
+
+Prologue
+---
+The usual quiet and serenity of the palace had given way to the anxiety and fear that always accompanied uncertainty. The bells rang out, loudly, signalling an attack, but there were no enemy soldiers, no conquering armies. 
+
+Captain Jenkins, the first of the Kings Guard, rushed through the ornate passages, their usual pristine cleanliness dissolved into disarray. Whispers and shouting echoed through the hallways in equal measure, members of the royal household staring anxiously from their chamber doors and holding onto each other for comfort.
+
+He passed couple of guards who were half way down the corridor, staring towards the commotion. “Stand at your post!” he shouted, and jumped backwards, retaking their position beside the door. 
+
+“Oh Captain, there you are” another soldier declared, in relief, forgetting all formalities.
+“Lead the way Seargent Kyle”, the Captain responded, putting enough emphasis in his voice to remind him to maintain his discipline.
+
+They continued on, deep into the keep, towards the safest place, the inner sanctum where the King’s chambers lay. 
+
+Where was the discipline, the Captain thought. These wre meant to be the best of the best, the king’s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
+
+“I will have order here!”, the Captain roared and each guard there stood to attention where they stood. He gave orders quickly as he walked onwards into the kings personal rooms. Once all the soldiers had been told what to guard, or where to patrol, he crossed into the kings chambers and locked the door.
+
+He looked upon the room. Carnage. Everything in the room had been tossed aside, the clear and resonating signs of a fight were clear to see. Vases smashed on the ground, on of the bed curtains had been pulled and now hung from one sad hook. Blood, there was so much blood. From the bed, to the floor to the wall, a thick trail of life stretched across the room.
+
+And at the end of the trail, slumped against the wall: The King. He was covered in more than a few blade marks all along his left arm and face, and huge cut in his chest, just below his heart. 
+
+He must have fought bravely. The thought flashed through the Captain’s head. At seventy years old, for him to fight back against an assassin’s blade, when attacked in the middle of the night? There are some skills that a warrior never forgets.
+
+But it had all been in vain. From the second the assassin had penetrated their defences the king had been dead. What did they do wrong? Not enough guards? Not enough walls?
+
+There was no point second guessing yourself. The guard crossed to the bed and took up a sheet and covered the kings naked body with it, just as a knock came on the door. The Captain crossed to unlock it.
+
+“I am afraid that you are too late Doctor”, he said, admitting the old man. The First Doctor of the Realm looked so odd. His usual illustrious clothing, with velvet and golden thread embroidery were replaced this evening by a cheap full length shift of cloth. 
+
+The surgeon crossed slowly, and put his hands to the back of his hand to the kings face, and then placed his palms all the way down his chest and to his legs. Finally coming to terms with the fatal truth, he sighed deeply and stood back.
+
+The Captain went and stood by doctor, placing his hand lightly on the old man’s shoulder. “We knew each other since we were kids”, the doctor said quietly. “My father used to bring me with him when he came to examine his father. We used play together sometimes.”
+
+“We will get whoever did this Rufus” The Captain said, but the old surgeon just looked away.
+
+As if to answer, there was suddenly a commotion at the door.
+
+“Sir”, a guard said, standing to attention.
+
+“Report”, the Captain clipped.
+
+“We have them sir, the assassin”
+
+“Where?”
+
+“They are being taken to the cells as we speak. Found unconscious in the West Gallery sir, knife still in hand”
+
+“Let’s go”, and the captain marched down towards the dungeons.
+
+As he walked down the wide passages of the royal keep, each of the guards stood to attention, showing the respect due the Captain of the Guard. Some of them looked so young, hardly ready for the war that was now inevitable.
+
+It hardly seemed fair at all, being sent into the fray, barely more than children. But had he not been that age, even younger, when the last war broke out? Hadn’t he done everything he could to enlist? To defend the kingdom and honour the king?
+
+Somehow it didn’t seem the same anymore, forty years had changed him beyond recognition. His many commendations for battles won and victories taken seemed a distant memory now. The events of another man’s life.
+
+But if it was going to be war, he was going to ensure that they were going to win. And the first step was to find out who was behind this heinous crime.
+
+Descending the cold stone steps, the steel gates clinked open as he approached them.
+“The prisoner is ready for questioning Captain”
+
+“No one else has spoken to the assassin yet?”, the captain asked.
+
+“No sir, they only just regained consciousness” the guard said.
+
+The guard took his ring of keys and unlocked the cell door and the Captain looked in the door. Two guards sat either side of a table, and the prisoner sat, face down on the table, manacles snaking from the floor to the assasins limbs.
+
+Sitting down at the table, the Captain loomed and slowly cracked his knuckles. “So, we are about to have a little chat”, the Captain said. A sixteen year old girl, hair matted to her face with sweat, stared back at him.
 
 1.
 ----
@@ -452,11 +520,32 @@ But no, Orin just let her go. That was all the more concerning. Had he already f
 
 And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, best to just hope that the odds are in your favour, and she headed to the docks to meet Robert.
 
+10.
+---
+Insert some side plot here, I am really tired of spending so much time with Emlyn
+
+11.
+---
+Emlyn spotted Robert leaning on the Harbour Wall where they had left each other the day before. He was reading a book one handed, in what he no doubt thought was a cool pose. His eyes were on his book, but he didn’t seem to absorbed in it, his eyes kept leaving the pages and scanning the market.
+
+If there was one thing that Emlyn believed in, it was getting even. And there was no way that she was going to let Robert get away with making her jump ten foot in the air.
+
+Of course, getting the jump on him would be difficult, the way he was leaning on the wall would make it difficult to sneak up on him. Of course, that would be a problem if she wasn’t a trained spy. This was her specialty
+
+The first tactic a spy had, was misdirection. Everyone looks one way, you go the other. A distraction then Emlyn thought looking around. What I need is a commotion, perhaps someone shouting. That will get Robert to look in that direction and I can surprise him from the other.
+
+But how? If she had been on a job, it wouldn’t be hard. Just tap Meranis, and snap one of the supports of a nearby stall. Next time anyone put any pressure on it, it would collapse making a thunderous noise.
+
+But that seemed a little much for a harmless prank, and Orin would most certainly have disapproved. A spy should be able to get by on their wits, not their strength. No other spies would have that option. 
+
+What would Orin do? Hmmm, plan b.
+
+
+
 Notes
 
 ---
 
-<Great sentences, need to go elsewhere>Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
+Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
 
-Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes.<end>
-
+Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes. 
