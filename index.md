@@ -4,52 +4,57 @@ layout: main
 
 Prologue
 ---
-The usual quiet and serenity of the palace had given way to the anxiety and fear that always accompanied uncertainty. The bells rang out, loudly, signalling an attack, but there were no enemy soldiers, no conquering armies. 
+The usual quiet and serenity of the palace had given way to the anxiety and fear that always accompanied uncertainty. The bells rang out loudly, signalling an attack, but there were no enemy soldiers, no conquering armies. 
 
 Captain Jenkins, the first of the Kings Guard, rushed through the ornate passages, their usual pristine cleanliness dissolved into disarray. Whispers and shouting echoed through the hallways in equal measure, members of the royal household staring anxiously from their chamber doors and holding onto each other for comfort.
 
-He passed couple of guards who were half way down the corridor, staring towards the commotion. “Stand at your post!” he shouted, and jumped backwards, retaking their position beside the door. 
+He passed couple of guards who were half way down the corridor, drawn away from their post the commotion. “Stand at your post!” he shouted, and they jumped backwards, retaking their position beside the door. 
 
 “Oh Captain, there you are” another soldier declared, in relief, forgetting all formalities.
+
 “Lead the way Seargent Kyle”, the Captain responded, putting enough emphasis in his voice to remind him to maintain his discipline.
 
-They continued on, deep into the keep, towards the safest place, the inner sanctum where the King’s chambers lay. 
+“The King’s chamber’s Sir”, he Seargent Kyle replied, and The Captain placed a hard look on his face and marched onwards.
 
-Where was the discipline, the Captain thought. These wre meant to be the best of the best, the king’s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
+They continued on, deep into the keep, towards the safest of places, the inner sanctum where the King’s chambers lay. 
 
-“I will have order here!”, the Captain roared and each guard there stood to attention where they stood. He gave orders quickly as he walked onwards into the kings personal rooms. Once all the soldiers had been told what to guard, or where to patrol, he crossed into the kings chambers and locked the door.
+Where was the discipline, The Captain thought. These were meant to be the best of the best, the king’s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
 
-He looked upon the room. Carnage. Everything in the room had been tossed aside, the clear and resonating signs of a fight were clear to see. Vases smashed on the ground, on of the bed curtains had been pulled and now hung from one sad hook. Blood, there was so much blood. From the bed, to the floor to the wall, a thick trail of life stretched across the room.
+“I will have order here!”, The Captain roared and each guard there stood to attention right where they were. He gave orders quickly as he walked onwards into the kings personal rooms. Once he had issued the undisciplined halfwits their orders, he entered the kings chambers.
 
-And at the end of the trail, slumped against the wall: The King. He was covered in more than a few blade marks all along his left arm and face, and huge cut in his chest, just below his heart. 
+He looked upon the room. Carnage. Everything in the room had been tossed aside, the clear and resonating signs of a struggle were clear to see. Vases smashed on the ground, one of the bed curtains had been pulled and now hung from one sad hook. Blood, there was so much blood. From the bed, to the floor to the wall, a thick trail of life stretched across the room.
+
+And at the end of the trail, slumped against the wall: The King. He was covered in more than a few blade marks all along his left arm and face, and huge gouge sat in his chest, just below his heart. 
 
 He must have fought bravely. The thought flashed through the Captain’s head. At seventy years old, for him to fight back against an assassin’s blade, when attacked in the middle of the night? There are some skills that a warrior never forgets.
 
 But it had all been in vain. From the second the assassin had penetrated their defences the king had been dead. What did they do wrong? Not enough guards? Not enough walls?
 
-There was no point second guessing yourself. The guard crossed to the bed and took up a sheet and covered the kings naked body with it, just as a knock came on the door. The Captain crossed to unlock it.
+There was no point second guessing yourself. The guard crossed to the bed and took up a sheet and covered the kings naked body with it, just as an old man barrelled into the room, out of breath, gasping.
 
-“I am afraid that you are too late Doctor”, he said, admitting the old man. The First Doctor of the Realm looked so odd. His usual illustrious clothing, with velvet and golden thread embroidery were replaced this evening by a cheap full length shift of cloth. 
+“I am afraid that you are too late Doctor Virchow”, he said as the old man entered. The First Doctor of the Realm looked so odd. 
 
-The surgeon crossed slowly, and put his hands to the back of his hand to the kings face, and then placed his palms all the way down his chest and to his legs. Finally coming to terms with the fatal truth, he sighed deeply and stood back.
+His usual illustrious clothing, with velvet and golden thread embroidery were replaced this evening by a cheap full length shift of cloth. He wasn’t wearing any shoes. Funny how something like that seems so odd at a time like that The Captain thought.
 
-The Captain went and stood by doctor, placing his hand lightly on the old man’s shoulder. “We knew each other since we were kids”, the doctor said quietly. “My father used to bring me with him when he came to examine his father. We used play together sometimes.”
+The surgeon crossed slowly to the king side, his bare feet wading into the large pool of blood around the king. He knealt down and put his hands to the back of his hand to the kings face, and then placed his palms all the way down his chest and to his legs. Finally coming to terms with the fatal truth, he sighed deeply and stood back.
 
-“We will get whoever did this Rufus” The Captain said, but the old surgeon just looked away.
+The Captain placed his hand lightly on the old man’s shoulder. 
 
-As if to answer, there was suddenly a commotion at the door.
+“We knew each other since we were kids”, the doctor said quietly. “My father used to bring me with him when he came to examine his father. We used play together sometimes.”
+
+“We will get whoever did this Rufus” The Captain said, but the old surgeon just looked away. They sat down on the bed, and the surgeon just looked at his feet.
 
 “Sir”, a guard said, standing to attention.
 
-“Report”, the Captain clipped.
+“Report”, The Captain clipped.
 
 “We have them sir, the assassin”
 
-“Where?”
+“Where?” The Captain asked, standing up suddenly.
 
 “They are being taken to the cells as we speak. Found unconscious in the West Gallery sir, knife still in hand”
 
-“Let’s go”, and the captain marched down towards the dungeons.
+“Let’s go” he said, and The Captain marched down towards the dungeons, as a group of apprentice surgeons charged past him to the king chambers, bags of equipment in hand. He could hear Rufus talking to them quietly as he marched to the dungeons.
 
 As he walked down the wide passages of the royal keep, each of the guards stood to attention, showing the respect due the Captain of the Guard. Some of them looked so young, hardly ready for the war that was now inevitable.
 
@@ -59,19 +64,27 @@ Somehow it didn’t seem the same anymore, forty years had changed him beyond re
 
 But if it was going to be war, he was going to ensure that they were going to win. And the first step was to find out who was behind this heinous crime.
 
-Descending the cold stone steps, the steel gates clinked open as he approached them.
-“The prisoner is ready for questioning Captain”
+Descending the cold stone steps, the steel gates clinked open as he approached them. They were deep underground now, fires burnt in brackets attached all along the world, the only light in a world of perpetual darkness.
 
-“No one else has spoken to the assassin yet?”, the captain asked.
+“The prisoner is ready for questioning Captain”, the ancient jailor said, a toothless grin on his face, clearly eager to have a new victim to maltreat. 
 
-“No sir, they only just regained consciousness” the guard said.
+“No one else has spoken to the him yet?”, the captain asked.
 
-The guard took his ring of keys and unlocked the cell door and the Captain looked in the door. Two guards sat either side of a table, and the prisoner sat, face down on the table, manacles snaking from the floor to the assasins limbs.
+“No sir, the assasin only just regained consciousness” the guard said, with a hint of laughter in his voice. “But I think you might find them a little different from what you are expecting Captain”, he said, finding his key on his giant ring of keys.
 
-Sitting down at the table, the Captain loomed and slowly cracked his knuckles. “So, we are about to have a little chat”, the Captain said. A sixteen year old girl, hair matted to her face with sweat, stared back at him.
+The jailor turned the long key in the lock and swung the cell door open and the Captain looked in the door. Two guards sat either side of a table, and the prisoner sat, face down on the table, manacles snaking from the floor to the his limbs.
+
+Sitting down at the table, the Captain loomed and slowly cracked his knuckles trying to be as imposing as he could. “So, we are about to have a little chat”, The Captain said, nodding to one of the guards. The grabbed and the prisoners head yanked his head off the table roughly.
+
+A sixteen year old girl, hair matted to her face with sweat, stared into The Captains head.
 
 1.
 ----
+
+One Week Earlier
+
+
+
 She slipped down the corridor, lump in her throat, skin tingling with excitement and pounding terror. Her footsteps, though quiet, thundered in her head as they echoed off the bare stone walls in the labyrinthine tunnels beneath the keep. 
 
 Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. Two guards. 
