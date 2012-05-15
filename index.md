@@ -399,9 +399,9 @@ They continued talking, quizzing each other on books they had read, their knowle
 
 Suddenly looking up she saw Orin coming down the street.
 
-“Oh no, look at the time!” she said, looking up at the clock tower which looked over the harbour. “I’ve gotta go, I am going to be late”
+“Oh no, look at the time!” she said, looking up at the clock tower which rose over the harbour. “I’ve gotta go, I'm going to be late”
 
-“Wait, where can I meet you again?” Robert said, grabbing her hand suddenly anxious.
+“Wait, where can I meet you again?” Robert said, grabbing her hand suddenly anxious. Emlyn stared down at where he had grasped her, and he suddenly let go, looking away.
 
 “Err, how about here? Tomorrow, at the sixth bell after noon.”
 
@@ -417,13 +417,13 @@ Emlyn could feel Roberts eyes on her as she briskly walked in Orin’s direction
 
 7.
 ---
-They sat at their small desk in their room at the Apple Pony, the windows flung open to try and entice any small night breeze into the humid room. The desk had been pulled from its original position facing the wall and placed in the centre of the room. The desk was covered by a large map of the city of Ren and a variety of documents sat on top of that, with Orins smoking box holding down one end of the map and an empty candlestick holding down the other.
+They sat at their small desk in their room at the Apple Pony, the windows flung open to try and entice any small night breeze into the humid room. The desk had been pulled from its original position facing the wall and placed in the centre of the room. The desk was covered by a large map of the city of Ren and a variety of documents sat on top of that, with Orin's smoking box holding down one end of the map and an empty candlestick holding down the other.
 
-“So, it appears that events move quickly without us. It seems that Kris is preparing for war.” Orin said. “I suspect that this fact is already well known in Verris by now, but in our travels, we must have missed the message.”
+“So, it appears that events move quickly without us. Kris is preparing for war.” Orin said. “And I suspect that this fact is already well known in Verris by now, but in our travels, we must have missed the message.”
 
 Orin took his pipe from his pocket and slowly and methodically started to fill it it. Once he was satisfied that it was just the way he wanted, he stood up, pulled a taper from the mantle and lit his pipe from a candle.
 
-“Our mission has not changed. Whatever developments may have occurred, there is no way for The House to contact as, and we must do our jobs quickly and effectively. Once we have achieved our objectives, we can return home via the fastest possible route and deliver our reports”
+“Our mission has not changed. Whatever developments may have occurred, there is no way for The House to contact as, and they are relying on us to do our jobs quickly and effectively. Once we have achieved our objectives, we can return home via the fastest possible route and deliver our reports”
 
 Orin started to suck on his pipe thoughtfully. Emlyn just sat, waiting for him to finish. When he was in this mood, it was best to let him speak out loud and wait for him to ask her a direct question.
 
@@ -473,6 +473,9 @@ Emlyn watched from the shadows as a group of drunks heading home together, half 
 
 9.
 ---
+
+6 days to go
+
 When Emlyn woke the sun was already well over the horizon, probably about eighth bell. She rose from her bed and washed in the basin of cold water before donning her favourite red dress and combing her hair thoroughly. This done, she added her matching butterfly hairclips to hold back her hair from falling in her face.
 
 Leaving her room she found Orin at the desk pouring over a red book filled with numbers and figures. His glasses looked odd on him, as though he was a different person entirely. Older, more learned. Without looking up he moved his fountain pen from where it hovered over his own book of pristinely copied notes and placed it back on the table and closed the bottle of ink. 
@@ -553,7 +556,75 @@ But that seemed a little much for a harmless prank, and Orin would most certainl
 
 What would Orin do? Hmmm, plan b.
 
+Suddenly, she spotted something out of the corner of her eye. Or to be precise, someone. Stood in the center of the market was a group of four soldiers. 
 
+The guard that she had confronted yesterday at the King's procession, was stood in center, jumping up and down, gesticulating wildly, while the other gaurds hunched over, holding their bellies as they rolled with laughter. 
+
+A plan sprung into Emlyn's mind fully formed. If there was something, that Emlyn loved, it was dispensing justice. And if there was a way that doing so would help create a distraction, all the better.
+
+Emlyn walked around the market for a bit before finding what she was looking for. The store was crawling, a menagerie of exotic animals from every corner of the world.
+
+Foxes and badgers, snakes and peacocks. There were so many animals, Emlyn wondered how the man made any profit with the amount that he must have to feed them. Then again, none of them looked too plump, chances are he wasn't spending too much on their upkeep.
+
+"A Pyrenian cat my lady! There truly is no better animal for a woman of high standing to posess. Look, at it's most beautiful and smooth fur, a finer speciman you will not find this side of the Delian Sea!"
+
+The merhchant's patter broke over Emlyn like a wall of water against a sand castle, and it was all she could to raise her hand and try and cut in when he took a breath after what seemed like an extraordinarily long time.
+
+"Please sir, I am not looking to buy a new pet". The man's face fell, the sheer look of disappointment on his face would put you in mind that she had just informed him that his wife had just died. Just before he looked like he was about to start crying Emlyn added, "But I was looking for some food for my current pet, a Rogap Adder!"
+
+The merchant's eyebrows shot up, disappearing into his mess of black hair sitting beneath his wide purple hat. "That is quite a pet for such a young noblewoman! You must truly have the bravery of twenty men!"
+
+"You flatter me sir, but truly, do you have any mice or small birds that I might purchase?"
+
+The merchant, started shuffling behind the counter, moving boxes and cages, searching and rummaging until finally he brought out a small wooden enclosure, crawling with mice.
+
+"Here we go Miss, half a crown, and there are ten plump mice in there"
+
+Emlyn only needed the one, but she figured that it would be a little akward asking, how would she carry it he would ask, surely our snake needs more than one mouse to stay well fed? She paid up and thanked the merchant. As she headed away she heard as another hapless passerby received the full pitch.
+
+Emlyn walked around the outside of the market, until she spotted some begger children, playing in near the wall of one of the surrounding buildings.
+
+As she approached, they started to look nervous, but before they could bolt, she made a placating gesture and held a copper piece between her thumb and forefinger. They all stodd stock still.
+
+"Can you do something for me?" Emlyn said, throwing the copper coin to the nearest child, he caught it in his fist, and the other surrounding him tried to prize it him but he stood firm and after a brief tussle they let go and looked back towards her.
+
+"Wha' for?" the taller one on the left asked, his street accent making grating against Emlyn's ears.
+
+"I need a very brave man, to take one of these mice", she said holding up the cage in her left hand, "and drop it down the trousers of that soldier over there", she said, pointing the cage at the guard, who was now stood in the circle, somewhat more refined.
+
+"Wha'? Are you soft lady? He'll run us through if he catches us", he replied. Emlyn was about to try her own sad face on the boys, before the one on the right said, "I'll do i' for a silver".
+
+"We have a winner!", Emlyn said, a huge smile breaking across her face. "Now you know which one it has to be right?"
+
+"The tall ugly stupid one, thinks he's a duck"
+
+Emlyn smiled and handed over the cage and a silver piece. After explaining that she wanted him to wait two minutes, she walked back into the market. The boys squealed to themselves as she left, their excited voices raising to a fever pitch as one of the boys pulled a mouse out by it's tail and cupped it in his hands.
+
+
+Emlyn took her place mingling with the crowd  near the sea wall, so that Robert was between her and the guard. Her heart hammered as she waited, anticipating the time when she would strike.
+
+And with the volume of a battery cannon's a scream went out among the market. All heads turned in one synchronous movement to stare at the soldier, once again hopping up and down, but now with the look of absolute fury on his face and a look of puzzlement on the faces of his friends.
+
+Robert looked up sharply from his book and stared at the commotion going on in the market. Arms were waving and peope were shouting. It seemed as though a fight was about to break out and everyone was going to have their piece to say about it.
+
+Looking casual, Emlyn walked along the wall slowly, until she was just a foot away two feet away from Robert and suddenly darted forward and grabbed him by his waist with a jerk.
+
+"Aaaahhh!", Robert screamed, jumping off his feet, his book falling to the dirt in front of him. He turned, a bewildered look on his face, before a relief flooded into his face as he saw Emlyn grinning back at him.
+
+"We're even now", she said, giving him her biggest smile. 
+"Yeah", he gasped, still trying to get his breath back. "I guess we are", he finally decided, bending down to pick up his book, dusting off the jacket and inspecting it for damage.
+
+"So... I'm here", Emlyn inquired, suddenly feeling a bit nervous that she had perhaps gone a little bit hard on him. After all he han't meant to scare her, it seemed a little cruel to punish him for that.
+
+But it was done, and she didn't think that an apology at this stage would help. 
+
+"You're late!" he said, a certain level of sarcasm in his tone, but Emlyn suspected he was actually quite annoyed at her tardiness.
+
+"You wouldn't believe what I had to do before I made it here. There were mice and everything", she said jestingly.
+
+"Right...", he replied, not quite sure what to make of that excuse.
+
+...
 
 Notes
 
@@ -562,3 +633,39 @@ Notes
 Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
 
 Emlyn had never thrown a ship, but she had lived most of her life aware of the invisible burn of Meranis on her skin, and its power had saved her life more than once.  To be away from that shining was to be vulnerable, to be weak.  Of course, sometimes there was nothing that could be done. Once the planet sank below the horizon, only the few who had charged Planet Wells could feel the shine and the power.  The drinkers of planets further away, Persanis and Orthanis sometimes went mad when their strength disappeared below the horizon, unable to escape the knoweldge that it would not rise again in their lifetimes. 
+
+Peeps
+--
+
+Who is Robert? Who the fuck cares? I think he is probably a rather boring person at the end of the day, nothing more than he appears. A student who is not particularly interesting, but is a nice distraction at the moment. There is of course the possiblity that he will become a spy for the enemy but I actually have a better idea. Why doesn't he fall madly in love with Emlyn? Emlyn kind of feels something, but hey, nothing is really going to last, she has to go home anyway, she knows that, why get attached. Then again, she thinks maybe she does like him, but who knows. Anyway, they hang outa  bit, but eventually it comes to a point where she get's the opportunity to totally fuck him over to get strategic advantage of some kind. I dunno, maybe get him to get documents from the archive he shouldent
+
+Fuck yes. This  is so good.
+
+So like, the historical records of Drinkers are kept deep within the archives, she turns Robert to get them for her. She then flees town with the intel, and totally leaves him behind to take the wrap. Torture, improsonment etc. Of course, 4/5 books later, he comes back, With A Vengance!
+
+Plot
+--
+
+So yeah
+
+We start with Emlyn being captured. Flash back the rest of the book, with a few flash forwards here and there to remind us where we are.
+
+SEmlyn and Orin start with setting up their spy network, turning people, getting documents, getting contacts.
+
+Emlyn meets Robert. They hang out a bit, I am thinking a 3 or 4 scenes on the close up, with the implication that they are meeting every few days to hang out or whatever.
+
+I tihnk it is going to come down quite heavily to Emlyn and Orin tracking down leads on the Drinkers that Ren has at their disposal. 
+
+I think the basic question is going to come down to try and tracking down where they are situated, so tha they can send in some assasins.
+
+So, lets think, what is it that we need? First, we need Orin to find some kind of clue for Orin to find in the records, which will give a hint for where there might be a Drinker. This clue will elad to further investigation, but in the end it will appear that Robert has the ability to find out what is actually going on. This seems a little implausible, but not overly so. I tihnk it is within the realms of possibility that Rob will have access to "The Archives"
+
+So what, does Orin find? Perhaps something that Drinkres need?
+
+Maps
+---
+
+Country 		Capital         King
+Verris							?
+Kris			Ren				?
+
