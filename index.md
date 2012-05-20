@@ -591,6 +591,16 @@ After checking and rechecking her knots in the dim nightlight, she gave three tu
 
 As he came to the top of the roof, Emlyn stretched out her hand and pulled Orin to safety.
 
+"Excellent, now to find an entrance"
+
+Tying another rope around the Gargoyle, Orin started to repel down the side of the building. After a brief scuffle with one of the windows, the shutter popped open and he swung inside. Emlyn waited ten seconds, before wrapping on of her legs around the rope and following.
+
+In the dim light of the room, she saw Orin kneeling by the door, teasing the lock into allowing him out of the room. Emlyn looked around. It seemed like some abandoned storage coset. Judging by the thick layer of dust in this room, no one had been here in quite a while. Years, perhaps decades, had come and gone, and no doubt those who had once known what was supposed to be held within had moved on, taking their secrets with them.
+
+Endless reams of paper, ledgers and books stood in endless stacks, filling the room from wall to wall, just enoguh space remaining to walk narrowly between them to retrieve any old document. If there was any kind of system, it was a mystery to Emlyn. The faded writing gave no clue as to what their contents contained.
+
+A faint clicked echoed through the room as Orin turned the lock and straightened to his feet.
+
 11.
 ---
 
