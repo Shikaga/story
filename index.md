@@ -540,8 +540,65 @@ And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, be
 ---
 Insert some side plot here, I am really tired of spending so much time with Emlyn
 
+Under the cover of night Emlyn and Orin made their way through the fog filled streets, not quite skulking, but clearly not wanting to be seen either. 
+Meranis was in perfect conjunction, directly above their heads, where the power flowed directly through her like a torrent, made all the worse by knowing that it would be slowly shrinking over the horizon as the night gave way to morning.
+
+"Allright, let's go, Orin whispered, pointing up at the top of the tall wall surrounding the Treasury. Standing two feet away from the wall, Emlyn bent down and cupped her hands together, giving a stand for Orin to place his right foot in.
+
+"Ready?", Emlyn asked. Orin swallowed grimly, eyes closed in silent prayer to the god's he didn't believe in before he opened them and gave a short nod.
+
+Emlyn tapped the power of Meranis, opening herself up to the power of Meranis, allowing the the unspeakable euphoria to overtake her momentarily. She gave a massive heave with her arms and sent Orin whistling into the air. Her breath caught in her throat as she saw Orin reach his peak and begin to fall, before he landed noiselessly on the top of the wall and she began to breath again.
+
+Still holding onto her power, she bent down into a crouch and kicked off violently, rocketing to the top of the wall. Too much. She knew it immediately, she had used to much power, she would go sailing right over the wall. 
+
+Time seemed to slow to a crawl, she saw the wall flying past her face, before it gave way to crenelations and then nothing but air. As she reached the peak of her jump, she looked down saw the concrete courtyard below. She would be fine, well she would live, if she could just land on her feet,
+
+Suddenly a rope shot past her face, and she instinctively, grabbed at it and pulled.
+
+Emlyn felt herself, getting pulled in towards the wall, when suddenly she saw Orin shooting towards her, pulled bodily off his feet by the strength of the her pull. Without thinking, she curled into a tight ball and felt Orin shoot over her head, the two of them in some kind of bizarre airborne dance, Emlyn open herself up for the landing and made a firm landing on the top of the wall, her feet looking for purchase on the dry stone.
+
+Orin. It was a single thought, violent and urgent. His brief flight brought by pulling his rope was coming to an end he began once again to fall. Emlyn, coiled the rope in around her with a panicked urgency.
+
+The rope became taught with about ten feet between her and orin as he went hurtling past her, in a determined silence from a man who had every reason to be screaming at the top of his lungs.
+
+The pressure on the rope suddenly increased like the kick of a bull, the roped snapped taught, Shocking Emlyn's body, causing her to grit her teeth, as she took Orin's full weight. Planet Drinker or not, she still had the same weight, and Orin was far heavier than her. Momentum was not in her favour here.
+
+Everything went quiet and Emlyn held her breath, straining against the rope. She looked both ways along the wall, expecting guards to come running, surely they had made too much noise.
+
+But when no one came, Emlyn started to pull on the rope and inch by inch she lifted Orin back up, until finally his arm came over the side of the wall and he rolled over and they both collapsed onto the cold hard stone.
+
+"Well, that was an exciting start to this little adventure", Orin finally offered, getting back to his feet and offering a hand to Emlyn, pulling her back to her feet.
+
+"I am going to pay for this tomorrow morning. I used way too much power, when Meranis sets, I am going to be crushed by waves of agony", Emlyn replied, trying not to think about what was to come.
+
+"All the more reason to get on with our mission. If you are going to be out of action for a few days, we need to get what we came for now."
+
+Emlyn just stared at him unbelievably. The Orin she knew would never force them on after such a disastrous start, just seconds into the mission. He should have scrapped the plan, fallen back and waited until they were back to full strength. Spies who lacked patience always came a grizzly end. Isn't that what he had always said?
+
+But Emlyn wasn't going to complain, any option to rectify the situation would be gladly received. If they left now, she would have no option but to accept a week of sarcastic comments about her 'looking before she leapt' or some such. If they achieved there objectives, all that would be forgotten.
+
+"Okay, well, then onwards we go" Emlyn replied, as Orin started to unwind the rope that he had wound around his stomach, which had anchored him to Emlyn in flight.
+
+"Going to have quite a bruise here as well, so you will be in good company"
+
+Orin took the rope and tied one end around the crenelation before offering the other end to Emlyn. Took the other end, wrapped it twice around her hand, and then leapt into the night.
+
+She flew through the air lightly, perfectly pitched to carry her gracefully onto the inner keep of the Treasury.The roof rose up to meet her and she landed lightly on the copper tiles.
+
+She let herself slip down the sloped roof until till she reached the edge and she leant her back against one of the stone gargoyles. She took her rope, pulled it taught and began to tie it firmly around the stone gargoyle. 
+
+After checking and rechecking her knots in the dim nightlight, she gave three tugs on the taught rope and felt three tugs come back from Orin. Letting go, she rested against the Gargoyle until twenty seconds later Orin came looming out the darkness, striding arrogantly across the rope.
+
+As he came to the top of the roof, Emlyn stretched out her hand and pulled Orin to safety.
+
 11.
 ---
+
+All below this sucks
+
+...
+
+
 Emlyn spotted Robert leaning on the Harbour Wall where they had left each other the day before. He was reading a book one handed, in what he no doubt thought was a cool pose. His eyes were on his book, but he didn’t seem to absorbed in it, his eyes kept leaving the pages and scanning the market.
 
 If there was one thing that Emlyn believed in, it was getting even. And there was no way that she was going to let Robert get away with making her jump ten foot in the air.
