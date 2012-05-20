@@ -624,6 +624,47 @@ But it was done, and she didn't think that an apology at this stage would help.
 
 "Right...", he replied, not quite sure what to make of that excuse.
 
+Robert continued, "I was thinking thinking, that you being such a avid fn of history I might give you an opportunity that most could never get. A look inside the Royal Archives of Ren"
+
+"Wow! Old books! You sure know how to show a girl a good time" Emlyn responded, crossing her arms across her chest, trying to keep a smile off her face.
+
+"Well, err, I", Robert started before  Emlyn broke into laughter.
+
+"Sorry, I would love to see the archives. I just don't think any guy has ever tried to taking me to a library on a first date"
+Right. Well, there is a first time for everything, shall we?
+
+12.
+---
+
+The university loomed it's massive door flanked by two beautiful statues of philosphers long dead. The onrate doors and decorative pillars gave a asense of majesty to an otherwise hideous grey square of a building.
+Reaching the top of the stops, they entered via a revolving door, all wood and glass and bronze.
+
+"Back so soon Master Robert? Judging by your fine clothes and look of purpose we thought it was certain you were on your wy to a date with..."
+
+The doorman fell silent as Emlyn join Robert's side.
+
+"Destiny?", Emlyn offered, as Robert gave her a light nudge with his elbow.
+
+"Let me introduce my friend Rosie, Rosie, this is NAME, the best friend of any student who gets a sudden need to read in the middle of the night.
+
+Name smiled openly. "Well, it is good to see that you have interests other than reading books Master Robert." He turned a revolding wooden platform around to point it a Emlyn before asking, "Would the lady like to sign in?" 
+
+"So this is the University?" Emyln asked, taking up the fountain pen and signing her endlessly practised alias in one smooth motion.
+
+"Goodness no, this is only the Universities' Library, The Royal Archive to use it's full title.
+
+Emlyn had know about the famous Royal Archive of Ren of couse, but somehow she hasd expected something... Else. Perhaps more monks, people shuffling around, ordering people to be quiet.
+
+...
+
+No time to finish this, but the fact is I hate this. There is something incredibly unbelievable about all this. Seriously, they seem to like each other far too much too soon. I think I have a better solution.
+
+At the end of their first meeting, Robert doesn't ask to see her again. The whole previous chapter never occurs. Instead, he is completely forgotten, life goes on.
+
+We continue on with the major mission, some cool shit happens. Eventually they have an epic fight with something/someone. After the action, Emlyn and Orin get into a major fight about what happened, perhaps Orin told her to do something, but she found a better way of doing it and he is angry at her for not following his orders, being risky blah blah, and she is angry at him for not giving her recognition for what she did, getting them out of a tight spot.
+
+Anyway, she storms out, and completely by accident bumps into Robert again, they get drinks, talk late into the night and she stumbles back home drunk blah blah. Obviosuly this doesn't help matters, and she starts seeing Robert more often, and Orin doesn't like it but can't really do anything about it.
+
 ...
 
 Notes
@@ -661,6 +702,8 @@ I think the basic question is going to come down to try and tracking down where 
 So, lets think, what is it that we need? First, we need Orin to find some kind of clue for Orin to find in the records, which will give a hint for where there might be a Drinker. This clue will elad to further investigation, but in the end it will appear that Robert has the ability to find out what is actually going on. This seems a little implausible, but not overly so. I tihnk it is within the realms of possibility that Rob will have access to "The Archives"
 
 So what, does Orin find? Perhaps something that Drinkres need?
+
+Interesting idea: Book two, we get introduced to a character, feamle, older, married, both members of the House. Anyway, she has an assigned animal, who is sentient during the book. In book 3 character dies, animal gets assigned to emlyn to look after. Animal regains sentience in 4th books and has to deal with the loss of previous "owner".
 
 Maps
 ---
