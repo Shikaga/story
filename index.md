@@ -85,35 +85,7 @@ One Week Earlier
 
 
 
-She slipped down the corridor, lump in her throat, skin tingling with excitement and pounding terror. Her footsteps, though quiet, thundered in her head as they echoed off the bare stone walls in the labyrinthine tunnels beneath the keep. 
-
-Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. Two guards. 
-
-Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their presence gave away the prizes within. 
-
-Stepping out, she took on her guise of the damsel in distress. If there was one thing all military men loved, it was having helping out an woman in need. Why, who wouldn't be thankful? And who knows how thankful she might be?
-
-"Woah, stop right there!" the first guard yelled, stretching out his hand. "What are you doing down here?" asked the younger guard, in a friendlier tone.
-
-"Thank goodness" Emlyn replied, putting on her most earnest voice. "I got lost, I have been wandering around for ages!"
-
-"STOP! Not one more step, or I'll run you through!" the senior guard shouted again, putting his right hand to the hilt of his sword, as he pulled the sheath clear of his cloak with military precision. Still, the die was cast and it would take far more than two guards to dissuade her from carrying out her mission.
-
-"Sorry", she said, almost crying, "I was just so scared".
-
-"That's okay, but please stand right there, I'll get one of my colleagues will assist you", the guard replied, and moved his hand to put his whistle to his lips. 
-
-She wasn't going to let him get off a summoning call, and by the time he knew to signal an alarm it would be too late.  This far below the Keep, she could feel only the tiniest shine of power from Meranis, but she had a phylactery with her that she had been charging all day. She triggered it with a tap and immediately felt the invisible glow burning on her skin. Drawing the power of Meranis into her chest, she darted forward with inhuman speed and punched straight for gut.
-
-Winded, the soldier doubled over, trying to draw his sword, but it was too late. She whipped her knee up and felt a dull thud as her knee made contact with his head.
-
-The impact was glancing and her fingers screamed for the wall, begging for purchase as she tried to steady herself. Her skin went icily cold and sweat burst out on her skin, her fear of death manifesting suddenly as she straightened back up to see the first guard slumped unconsciously on the floor, the younger guard staring down at him in shock. As he locked eyes with her he started backing away, his shaking hand going for his sword as well.
-
-Emlyn almost felt sorry for him. Simply the wrong man in the wrong place at the wrong time. If he had been born in Verris he might have been someone she could have become friends with, perhaps one of the scribes or valet or any of the other young men that she would talk to in the Royal Gardens back home. She almost felt sorry for him.
-
-She swung again, this time her left fist landing a solid contact on his forehead, his head whipping back violently into wall behind him. As he slid down the wall to join his fellow slumberer on floor, Emlyn turned, checking the corridor both ways, fearing the sound of charging guards coming to assist their friends. 
-
-But no one came. As the adrenaline started leaving her body, her body started to shake and she crouched down taking deep breaths trying to regain her composure. With the adrenaline, the power that had been infused in her body started to fade and she started to feel her body start to ache. While, Meranis provided you with strength and alacrity, it wouldn't stop you from paying the price for your actions. She would feel the pain come tomorrow, but it could be worse, she could have been one of the soldiers.
+Put some stuff in here. Well, lets just have an entirely different chapter maybe. I dunno, does it really matter?
 
 Wasting no time, she slipped a key from the bag strapped to her belt and jammed it into the door the soldiers had been guarded. She held her breath as she turned the key, but the lock fell and she stepped into the dark room beyond.
 
@@ -524,21 +496,16 @@ Many people thought Emlyn was fast. When she kicked or punched, they swore that 
 
 And if that wasn’t bad enough, Meranis was going out of phase, and would not be at its strongest again for more than two years. An attack now would be deadly. There had to be something they could do, some way to reverse the oncoming apocalypse. 
 
-The chimes rang out for fifth bell. “I’m going out” Emlyn said. Orin looked up at her, locked her with his sharp stare, before saying “Okay”. 
+More Stuff here
 
-Emlyn got up to leave, grabbed her warm coat and her bag and headed out the door.
+...
 
-Wow, that was easy Emlyn thought. She had been expecting a fight, Orin demanding to know where she was going, insisting that she was putting herself in way too much danger heading out to see a boy so close to nightfall. She had already rehearsed in her head telling Orin that she could take care of herslf, thank you very much, to which Orin would reply that he was perfectly aware of that, but that she might expose herself, that they would know that there was a Drinker in the city. She would then reply that after stealing the book the yesterday they probably already knew, and besides, she would be careful.
+Chapter Goes here.
 
-But no, Orin just let her go. That was all the more concerning. Had he already figured everything out, knew where she was going and who she was meeting? Quite possible, you didn’t become a head spymaster without being able to know things that there was no way that you could know. But then again, maybe he just trusted her. Perhaps he just believed that she would not do anything stupid. Perhaps he was expecting her to come back with a key piece of information that would be the key to their victory.
+Okay, so basically it is like this. Orin notices something. Seems like there is a huge amount of gold and steel going to the Royal Mint. But thing is, there never seems to be any coins coming out. What's up with that. Orin has a theory, but he will have to confirm.
 
-“Anngghh”, Emlyn yelled as she headed down the stairs and out of the Inn. How was it that with a single word Orin could put her so much on edge? He probably didn’t even realise that he had made her so anxious, he had probably gone straight back into his trance, plotting and scheming their way to triumph.
-
-And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, best to just hope that the odds are in your favour, and she headed to the docks to meet Robert.
-
-10.
+11.
 ---
-Insert some side plot here, I am really tired of spending so much time with Emlyn
 
 Under the cover of night Emlyn and Orin made their way through the fog filled streets, not quite skulking, but clearly not wanting to be seen either. 
 Meranis was in perfect conjunction, directly above their heads, where the power flowed directly through her like a torrent, made all the worse by knowing that it would be slowly shrinking over the horizon as the night gave way to morning.
@@ -595,19 +562,115 @@ As he came to the top of the roof, Emlyn stretched out her hand and pulled Orin 
 
 Tying another rope around the Gargoyle, Orin started to repel down the side of the building. After a brief scuffle with one of the windows, the shutter popped open and he swung inside. Emlyn waited ten seconds, before wrapping on of her legs around the rope and following.
 
-In the dim light of the room, she saw Orin kneeling by the door, teasing the lock into allowing him out of the room. Emlyn looked around. It seemed like some abandoned storage coset. Judging by the thick layer of dust in this room, no one had been here in quite a while. Years, perhaps decades, had come and gone, and no doubt those who had once known what was supposed to be held within had moved on, taking their secrets with them.
+In the dim light of the room, Emlyn looked around to survey it's contents. It seemed like some abandoned storage coset. Judging by the thick layer of dust in this room, no one had been here in quite a while. Years, perhaps decades, had come and gone, and no doubt those who had once known what was supposed to be held within had moved on, taking their secrets with them.
 
 Endless reams of paper, ledgers and books stood in endless stacks, filling the room from wall to wall, just enoguh space remaining to walk narrowly between them to retrieve any old document. If there was any kind of system, it was a mystery to Emlyn. The faded writing gave no clue as to what their contents contained.
 
-A faint clicked echoed through the room as Orin turned the lock and straightened to his feet.
+"Want to give this one a go?" Orin whispered, inviting Emlyn to unlock the door that would allow them access to the corridor that would take them to their objective.
 
-11.
+Emlyn knelt down beside the door and slipped her toolset out of her bag. Peering at the lock she started to gently riggle the long metal implements, encouraging the lock to open.
+
+There waws something very satisfying about opening locks. The finesse of it, knowing just how much pressure to use, and where. Too little and lock would not turn, too much and the lock would jam and you would have to start from the beginning again. Not much different from people really. Just a study in pressure and patience. Compliance was just a matter of time.
+
+But this lock would not comply. Everytime she thought she was near, something odd would occur and she would be forced to start from the beginning again. And Orin's sigh's from behind weren't helping.
+
+She tried every trick she knew, but everytime she got a little bit closer, she found something that would just not give way. Finally Orin put his hand on her shoulder and she withdrew her tools and stood back to let Orin try his luck. Although, Orin would of course say that it would only take pure skill when he did it.
+
+While Orin drew his own set of finely crafted lock picks from his belt Emlyn wandered the room. Orin swore that he had won the lock picks from a giant in a wrestling match, or was it the present for rescuing a nobleman's wife from a band of raiding savages? There was definitely tall story behind how he came into a set of lock picks inlaid with pearl and gold. Although he no doubt stole them from some unfortunate mark or other. Irony was never lost on Orin, and he no doubt took great glee in stealing from a would be thief.
+
+Emlyn found herself looking at the ledgers and books that stood in their towering stacks in the room. Most were the typical boring sort, reports of one lord's complaint against the other. Taxes too high, too many raiders attacking the merchant fleets, one nobleman's daughter seduced another's son and was now trying to get him to name the bastard as his heir.
+
+Most of the reports were written in the common tounge, painstakenly copied out in smooth clear script, quill and ink engraved with expert precision. Others were written in some kind of cypher, their keys included on a loose paper between the cover and the first page. Being consigned to this room was the only action needed to ensure that they would never be read again.
+
+The lock clicked and Orin peaked through the crack in the door.
+
+"All clear", Orin informed her. "That lock was a real nightmare, was just about ready to ask you to smash through near the end there."
+
+"Seems like someone predicted someone might try to do what we did", Emlyn replied, concern in her voice.
+
+"Hardly. More likely no one ever wanted those documents read. No doubt one hundred years ago those secrets would have been most valuable. The grave has taken the men and this room has taken their secrets. Lets be on our way. Remain silent."
+
+They snuck out into the corridor and Orin leapt off into the darkness, Emlyn following on fleet footsteps behind him. There is a trade off between speed and silence, and Orin rides the knife edge, skating along the dark stone corridors, never making more than the faintest of footsteps. 
+
+Emlyn felt like a lumbering beast, as her quiet steps, sending thundering echoes off the bare stone walls in the labyrinthine tunnels inside the Mint.
+
+Orin put his ear to a heavy wooden door before pulling it wide to find a winding staircase leading to the murky depths of the levels below. He turned around, winked in the dim light of the corridor and flew through the door, Emlyn following just steps behind him.
+
+Emlyn regretted closing the door immediately, as the suffocating darkness enveloped them. Emlyn stuck her left arm to the wall while her right groped into the still air in front of her. She found Orin, their arms wrapping clumsily around each other in the pitch blackness.  Orin slipped his arm down hers until he had Emlyn's hand in his. He gave a brief squeeze of support and pulled her as he headed down the lightless stairs.
+
+Emlyn held on tight, rushing headlong into the hellish depths, certain each step would be her last. They dashed step after step, leaving their secret entrance miles above them. Emlyn thought about the long journey that still lay ahead of her, having to travel back up the steps to make good their escape.
+
+Finally Orin, slowed to a stop and after a brief pause said "Do you hear that?". 
+
+Emlyn held here breath and in the deep silence, heard a faint metalic sound. Mechanical. A crashing and crunching of too many moving parts.
+
+"The mint?" she asked, her voice bouncing off the walls in the darkness.
+
+"Indeed" Orin replied, "Now we will what is going on here." 
+
+Orin swung the door open slowly and quietly as the small light of the mounted torches struck their tender eyes.
+
+"Lets go", Orin said, releasing her hand and slipping into the corridor. Emlyn followed.
+
+12.
 ---
 
-All below this sucks
+Drawn onwawrd by the ever increasing volume of the grinding machinery, they dashed through the passages in the Royal Mint. Emlyn was totally lost now. She wondered how Orin was able to keep himself oriented, trying to shut out the terrible thought that maybe he didn't.
+
+Emlyn wasn't even really sure they were above ground anymore. They had traveled so long and so far that she wouldn't be surprised if she was in a different country entirely.
+
+Orin waved her to a stop, and she leant against wall, trying to blend in with the shadows. Orin was leant against wall at an intersection. He poked his head out and snapped it back and fixed his gaze on Emlyn.
+
+Two guards. Twenty yards down the corridor. Armed. Orin signed all the information she would need in a series of sharp, precise hand motions. Emlyn nodded and Orin signed one final command. Kill. [???]
+
+
+
+Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. 
+
+She slipped down the corridor, lump in her throat, skin tingling with excitement and pounding terror. 
+
+Clad in bright blue uniforms with embroidered silver lining and fine swords by their sides, they appeared stood to attention beside a non-descript door. Had they not been there, she may have missed the room entirely, Emlyn thought to herself. But their presence gave away the prizes within. 
+
+Stepping out, she took on her guise of the damsel in distress. If there was one thing all military men loved, it was having helping out an woman in need. Why, who wouldn't be thankful? And who knows how thankful she might be?
+
+"Woah, stop right there!" the first guard yelled, stretching out his hand. "What are you doing down here?" asked the younger guard, in a friendlier tone.
+
+"Thank goodness" Emlyn replied, putting on her most earnest voice. "I got lost, I have been wandering around for ages!"
+
+"STOP! Not one more step, or I'll run you through!" the senior guard shouted again, putting his right hand to the hilt of his sword, as he pulled the sheath clear of his cloak with military precision. Still, the die was cast and it would take far more than two guards to dissuade her from carrying out her mission.
+
+"Sorry", she said, almost crying, "I was just so scared".
+
+"That's okay, but please stand right there, I'll get one of my colleagues will assist you", the guard replied, and moved his hand to put his whistle to his lips. 
+
+She wasn't going to let him get off a summoning call, and by the time he knew to signal an alarm it would be too late.  This far below the Keep, she could feel only the tiniest shine of power from Meranis, but she had a phylactery with her that she had been charging all day. She triggered it with a tap and immediately felt the invisible glow burning on her skin. Drawing the power of Meranis into her chest, she darted forward with inhuman speed and punched straight for gut.
+
+Winded, the soldier doubled over, trying to draw his sword, but it was too late. She whipped her knee up and felt a dull thud as her knee made contact with his head.
+
+The impact was glancing and her fingers screamed for the wall, begging for purchase as she tried to steady herself. Her skin went icily cold and sweat burst out on her skin, her fear of death manifesting suddenly as she straightened back up to see the first guard slumped unconsciously on the floor, the younger guard staring down at him in shock. As he locked eyes with her he started backing away, his shaking hand going for his sword as well.
+
+Emlyn almost felt sorry for him. Simply the wrong man in the wrong place at the wrong time. If he had been born in Verris he might have been someone she could have become friends with, perhaps one of the scribes or valet or any of the other young men that she would talk to in the Royal Gardens back home. She almost felt sorry for him.
+
+She swung again, this time her left fist landing a solid contact on his forehead, his head whipping back violently into wall behind him. As he slid down the wall to join his fellow slumberer on floor, Emlyn turned, checking the corridor both ways, fearing the sound of charging guards coming to assist their friends. 
+
+But no one came. As the adrenaline started leaving her body, her body started to shake and she crouched down taking deep breaths trying to regain her composure. With the adrenaline, the power that had been infused in her body started to fade and she started to feel her body start to ache. While, Meranis provided you with strength and alacrity, it wouldn't stop you from paying the price for your actions. She would feel the pain come tomorrow, but it could be worse, she could have been one of the soldiers.
+
+Random stuff
+---
+
+The chimes rang out for fifth bell. “I’m going out” Emlyn said. Orin looked up at her, locked her with his sharp stare, before saying “Okay”. 
+
+Emlyn got up to leave, grabbed her warm coat and her bag and headed out the door.
+
+Wow, that was easy Emlyn thought. She had been expecting a fight, Orin demanding to know where she was going, insisting that she was putting herself in way too much danger heading out to see a boy so close to nightfall. She had already rehearsed in her head telling Orin that she could take care of herslf, thank you very much, to which Orin would reply that he was perfectly aware of that, but that she might expose herself, that they would know that there was a Drinker in the city. She would then reply that after stealing the book the yesterday they probably already knew, and besides, she would be careful.
+
+But no, Orin just let her go. That was all the more concerning. Had he already figured everything out, knew where she was going and who she was meeting? Quite possible, you didn’t become a head spymaster without being able to know things that there was no way that you could know. But then again, maybe he just trusted her. Perhaps he just believed that she would not do anything stupid. Perhaps he was expecting her to come back with a key piece of information that would be the key to their victory.
+
+“Anngghh”, Emlyn yelled as she headed down the stairs and out of the Inn. How was it that with a single word Orin could put her so much on edge? He probably didn’t even realise that he had made her so anxious, he had probably gone straight back into his trance, plotting and scheming their way to triumph.
+
+And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, best to just hope that the odds are in your favour, and she headed to the docks to meet Robert.
 
 ...
-
 
 Emlyn spotted Robert leaning on the Harbour Wall where they had left each other the day before. He was reading a book one handed, in what he no doubt thought was a cool pose. His eyes were on his book, but he didn’t seem to absorbed in it, his eyes kept leaving the pages and scanning the market.
 
@@ -700,8 +763,7 @@ Robert continued, "I was thinking thinking, that you being such a avid fn of his
 "Sorry, I would love to see the archives. I just don't think any guy has ever tried to taking me to a library on a first date"
 Right. Well, there is a first time for everything, shall we?
 
-12.
----
+...
 
 The university loomed it's massive door flanked by two beautiful statues of philosphers long dead. The onrate doors and decorative pillars gave a asense of majesty to an otherwise hideous grey square of a building.
 Reaching the top of the stops, they entered via a revolving door, all wood and glass and bronze.
@@ -735,7 +797,6 @@ Anyway, she storms out, and completely by accident bumps into Robert again, they
 ...
 
 Notes
-
 ---
 
 Those who drink the power of Meranis gain strength and speed.  It's said that Meran himself, with the planet at its zenith, lifted a fully manned warship out of the Strait of Kormon and hurled it ten miles. While such a story seems unlikely, there is no doubt that the ruined carcass of a centuries old iron ship still lies in the desert an hours ride from Kormon city.
@@ -752,7 +813,7 @@ Fuck yes. This  is so good.
 So like, the historical records of Drinkers are kept deep within the archives, she turns Robert to get them for her. She then flees town with the intel, and totally leaves him behind to take the wrap. Torture, improsonment etc. Of course, 4/5 books later, he comes back, With A Vengance!
 
 Plot
---
+---
 
 So yeah
 
