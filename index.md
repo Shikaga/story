@@ -621,9 +621,7 @@ Emlyn wasn't even really sure they were above ground anymore. They had traveled 
 
 Orin waved her to a stop, and she leant against wall, trying to blend in with the shadows. Orin was leant against wall at an intersection. He poked his head out and snapped it back and fixed his gaze on Emlyn.
 
-Two guards. Twenty yards down the corridor. Armed. Orin signed all the information she would need in a series of sharp, precise hand motions. Emlyn nodded and Orin signed one final command. Kill. [???]
-
-
+Two guards. Twenty yards down the corridor. Armed. Orin signed all the information she would need in a series of sharp, precise hand motions. Emlyn nodded.
 
 Approaching a corner, Emlyn dropped into the shadow of the wall and stuck her head out to check the adjacent corridor. 
 
@@ -654,6 +652,33 @@ Emlyn almost felt sorry for him. Simply the wrong man in the wrong place at the 
 She swung again, this time her left fist landing a solid contact on his forehead, his head whipping back violently into wall behind him. As he slid down the wall to join his fellow slumberer on floor, Emlyn turned, checking the corridor both ways, fearing the sound of charging guards coming to assist their friends. 
 
 But no one came. As the adrenaline started leaving her body, her body started to shake and she crouched down taking deep breaths trying to regain her composure. With the adrenaline, the power that had been infused in her body started to fade and she started to feel her body start to ache. While, Meranis provided you with strength and alacrity, it wouldn't stop you from paying the price for your actions. She would feel the pain come tomorrow, but it could be worse, she could have been one of the soldiers.
+
+"Nicely done. A little scrappy, but not too bad I think." Orin said, walking up to her. Emlyn just crouched, looking up at him, trying to catch her breath.
+
+"So, we have come a long way. Shall we see what our efforts have bought us?" and Orin swung the door open.
+
+12.
+---
+
+They entered what had once been a cavernous gallery with wooden panellig on the walls and floors betraying its once majestic designs. It had clearly once been a room once used for entertaining elegant heads of state on a tour of where their money was kept.
+
+It had now been repurposed, the fine furniture pushed to the edges of the room, the once beautiful thick carpet sat roled up in the one of the corners.
+
+Their eyes were drawn to the what now dominated the room. A single large metal contraption sat squarely in the middle of the room, surrounded by stacks of paper on half a dozen desks.
+
+Approaching the desks, Orin picked up the papers and inspected them.
+
+"Well, this trip has not been a waste." he said, passing one of the sheets to Emlyn.
+
+"Promissory Notes?" Emlyn asked.
+
+"Yes, specifically, Verrisian Promissory Notes. No doubt, Kris would like to use our own money to wage war against us. They cash these in, take our money and inflate our own economy at the same time. Perfect forgeries. The perfect crime".
+
+"Perfect? When did you become an expert on forgery?"
+
+"Well, they look real to me, and I assume that they wouldn't bother making them if they were anything less than perfect. While there are some people who will accept Promissory Notes as payment, with a quantity this big, they will need to turn most of these into one of our Royal Banks. If they can't fool the Banks, these will be worthless."
+
+It's repi
 
 Random stuff
 ---
