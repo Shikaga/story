@@ -678,7 +678,54 @@ Approaching the desks, Orin picked up the papers and inspected them.
 
 "Well, they look real to me, and I assume that they wouldn't bother making them if they were anything less than perfect. While there are some people who will accept Promissory Notes as payment, with a quantity this big, they will need to turn most of these into one of our Royal Banks. If they can't fool the Banks, these will be worthless."
 
-It's repi
+They walked around the room, inspecting the different notes, boxes of supplies and the copious amount of handwritten notes that were dashed around the place. Orin pulled up a chair at one of the desks and started reading."
+
+"We're in trouble"
+
+"Oh?"
+
+"Well, judging from the amount of notes we have stacked here", he said indicating the promissory notes stood on the desks, " and the amounts they are refering to in these notes, there is a significant amount missing. The notes from the quartermaster indicated that about ten times as much paper has been delivered here and these notes concur. Some may have been lost to waste, ten or twenty percent maybe, but there should still be plenty stacked here."
+
+"Well ther is no way we can really know how much has been received. They could have received paper from plenty of sources not on the manifest".
+
+"Unlikely. Only a very specific type of paper can be used for Promissory Notes, and they are not sold on every market corner. No, I think that a large amount of notes have been produced and shipped out from here already."
+
+Orin closed the ledger that he had been reading and stuck it into his bag along to join the stolen notes.
+
+"Okay, this isn't really our job, but seeing as we are here and knocking out those guards has already given us away, Let us commit a little sabotage. And then lets go. This is enough evidence to indicate that Kris is almost certainly going to got to war with us"
+
+Orin folded a few of the sheets and stuck them in his bag and then walked over to the giant metal contraption and started inspecting it. He bent over, looking at all it's different angles, before going back to one of the desks and picking up one fo the tools tha was neatly laid on it.
+
+Going back to the machine, he took the tool and gave the tool a swift tap somewhere inside the machine before once more re-emerging.
+
+"What was that?" Emyln asked?
+
+"I made  a small mark on the stamp. Probably too small for anyone to notice it if they weren't looking for it, but should allow us to spot any more forgeries in the future."
+
+"By the way, how did you know that the forgeries were being made on this floor?"
+
+"Well", Orin started, "I heard... the machine".
+
+"But its not in use at the moment, so what was it that you heard?"
+
+"We need to go", Orin said and started to walk swiftly towards the door magnificent oak door before stopping dead  as it swung open violently. Two dozen soldiers, filed in spreading out along the wall in perfect formation, each with their hands on their swords, a look of steely determination in their eyes.
+
+As the pair came through the door and stood on either side, a final man came through, a look of calm confidence and superiority on his face. Judgin from the insignia Emlyn put him down as the the Captain of the guard, the highest member of the Royal Body Guard. Emlynjudged him too be well into his sixties, he face aged and weathered, scarred and marked and his a hair a shock of grey, still plenty left, but clear sings of balding. 
+
+But there was no mistaking his lethal physique. This man could take on half a dozen men half his age without breaking a sweat. And as he locked his eyes with Emlyn, she felt a icy hand of fear on her heart, freezing her in place.
+
+"Well, well. Don't you too looked lost." The Captain said, his smile growing over his face. "So very far from home, and in the company of strangers. I don't suppose there is any chance of you coming with us without resorting to violence?"
+
+Silence filled the room. Emlyn stared down The Captain and waited, heart hammerign in her chest, a thousand thoughts going through her mind. The fear was now starting to take her. It suddenly occured to Emlyn that she had never been truly afraid before. She had never truly confronted the thought of her own mortality, before this very second. That was a bit of an oversight really, surely some of her trainign should have dealt with her having to accept that she would one have to die. Now was really not a great time to have to come to terms with such things. 
+
+"Rosie?" Orin said, breaking her out of her hypnosis. Cool as always, Orin stared directly ahead, never taking his eyes off the captain.
+
+"Yeah?", she acknowledged breathlessly, the short word taking all of her will to speak, while her panic started to crash down on her like an enornomous wave in a sea of fear.
+
+"Run".
+
+13.
+---
 
 Random stuff
 ---
