@@ -516,37 +516,9 @@ Meranis was in perfect conjunction, directly above their heads, where the power 
 
 Emlyn tapped the power of Meranis, opening herself up to the power of Meranis, allowing the the unspeakable euphoria to overtake her momentarily. She gave a massive heave with her arms and sent Orin whistling into the air. Her breath caught in her throat as she saw Orin reach his peak and begin to fall, before he landed noiselessly on the top of the wall and she began to breath again.
 
-Still holding onto her power, she bent down into a crouch and kicked off violently, rocketing to the top of the wall. Too much. She knew it immediately, she had used to much power, she would go sailing right over the wall. 
-
-Time seemed to slow to a crawl, she saw the wall flying past her face, before it gave way to crenelations and then nothing but air. As she reached the peak of her jump, she looked down saw the concrete courtyard below. She would be fine, well she would live, if she could just land on her feet,
-
-Suddenly a rope shot past her face, and she instinctively, grabbed at it and pulled.
-
-Emlyn felt herself, getting pulled in towards the wall, when suddenly she saw Orin shooting towards her, pulled bodily off his feet by the strength of the her pull. Without thinking, she curled into a tight ball and felt Orin shoot over her head, the two of them in some kind of bizarre airborne dance, Emlyn open herself up for the landing and made a firm landing on the top of the wall, her feet looking for purchase on the dry stone.
-
-Orin. It was a single thought, violent and urgent. His brief flight brought by pulling his rope was coming to an end he began once again to fall. Emlyn, coiled the rope in around her with a panicked urgency.
-
-The rope became taught with about ten feet between her and orin as he went hurtling past her, in a determined silence from a man who had every reason to be screaming at the top of his lungs.
-
-The pressure on the rope suddenly increased like the kick of a bull, the roped snapped taught, Shocking Emlyn's body, causing her to grit her teeth, as she took Orin's full weight. Planet Drinker or not, she still had the same weight, and Orin was far heavier than her. Momentum was not in her favour here.
-
-Everything went quiet and Emlyn held her breath, straining against the rope. She looked both ways along the wall, expecting guards to come running, surely they had made too much noise.
-
-But when no one came, Emlyn started to pull on the rope and inch by inch she lifted Orin back up, until finally his arm came over the side of the wall and he rolled over and they both collapsed onto the cold hard stone.
-
-"Well, that was an exciting start to this little adventure", Orin finally offered, getting back to his feet and offering a hand to Emlyn, pulling her back to her feet.
-
-"I am going to pay for this tomorrow morning. I used way too much power, when Meranis sets, I am going to be crushed by waves of agony", Emlyn replied, trying not to think about what was to come.
-
-"All the more reason to get on with our mission. If you are going to be out of action for a few days, we need to get what we came for now."
-
-Emlyn just stared at him unbelievably. The Orin she knew would never force them on after such a disastrous start, just seconds into the mission. He should have scrapped the plan, fallen back and waited until they were back to full strength. Spies who lacked patience always came a grizzly end. Isn't that what he had always said?
-
-But Emlyn wasn't going to complain, any option to rectify the situation would be gladly received. If they left now, she would have no option but to accept a week of sarcastic comments about her 'looking before she leapt' or some such. If they achieved there objectives, all that would be forgotten.
+Soaring through the air, she glided gracefully onto the wall, landing lightly on of the crenelations and giving a little bow to Orin.
 
 "Okay, well, then onwards we go" Emlyn replied, as Orin started to unwind the rope that he had wound around his stomach, which had anchored him to Emlyn in flight.
-
-"Going to have quite a bruise here as well, so you will be in good company"
 
 Orin took the rope and tied one end around the crenelation before offering the other end to Emlyn. Took the other end, wrapped it twice around her hand, and then leapt into the night.
 
@@ -725,6 +697,99 @@ Silence filled the room. Emlyn stared down The Captain and waited, heart hammeri
 "Run".
 
 13.
+---
+
+Orin turned on his heels and ran full tilt towards one of the doors on the other side of the room. 
+
+"Draw swords!" The Captain shouted, and the Regiment moved in one smooth motion to bring their arms to bear.
+
+Emlyn came out of her trance and charged after Orin, heading towards the rear wall. She could hear the men chargin after her, their heavy combat boots thundering on the floor. The sound of a loosed crossbow bolt rang through the room and Emlyn dived behind the printing press as the fletching skimmed past her cheek.
+
+Her back to the press, she could see that Orin had almost reached door, and she knew there was no way that she could catch up with him before the soldiers were on her.
+
+Tapping her Planet Well once more, she drew Merais into her once more, the power flowing from her necklace into her very soul. She crouched down, bracing her feet on the floor and she grabbed giant contraption in her hands.
+
+With an enormous, wrenching determination Emlyn began to lift the press over herself. Slowly the press started to lift off the floor and into the air, the metal coffin hanging perilously over her.
+
+Fighting it, inch by inch, she moved it into position, directly above her and she twisted violently tossing the press press directly at The Captain as she felt Miranis leave her, the Planet Well finally having run dry.
+
+The framework flew through the air and careened over the elegant hall as Emlyn's feet went out from under her, the force of throwing the press tossing her in the direction. Airborn, she felt herself hurtling towards Orin, she grinned as she saw the look of disbelief of the soldiers faces.
+
+The contraption thundered into the floor, a deafening crash bursting through the room. Emlyn could see soldiers, flung into the air as the press careened across the room, sliding at high speed towards the main doors leaving inch deep gouges into the beautfifully laid timbers.
+
+Emlyn passed through open door, still airborn, and flew past Orin as she fianlly hit the floor, rolling over backwards, the world rotating in front of her eyes, before she found her feet, still sliding backwards from her momentum.
+
+"Nice", Orin said, breathlessly as he continued through the immaculate state room towards the next door, Emlyn hot on his heels.
+
+"We gotta get outside" Emlyn gasped "My Planet Well is dry."
+
+"Third floor" Orin replied, "Down" he indicated.
+
+Whipping her head aroud, Emlyn saw half a dozen soldiers chasing after them, swords drawn, one room behind. "Go!" she shouted.
+
+The dashed through room after room in one long gallery, each room beautifully decorated, hanging art on the walls, exquisite chandleries lighting the rooms. Door after door they charged through, the soldiers following hot on their heels.
+
+Emlyn's legs ached, her lngs were on fire and she felt as though her heart was about burst. They were hardly even running any more, stuck somewhere between jogging and walking fast, their breathing heavy as they tried to keep ahead of their persuers, who were in the same state.
+
+Looking wildly for a window or a staircase they kept on limping forward. How big is this building Emlyn asked herself, there is no way they couldn't be out yet.
+
+And just then Orin dashed through the next room and came out to a broad stone staircase leading down to the atrium at the front of the Mint. Giant stone statues stood in the atrium, men riding tigers and snakes locked in combat. And between, them stood another dozen soldiers, guarding the exit.
+
+Emlyn could feel the whispers of Meranis through the giant plate windows, but they must have been facing south, as she could not pull on her power. She needed to get outside, but would be sliced to pieces before she got to the door. Which is almost certainly locked, she thought.
+
+"What now?" Emlyn asked, her panic once again rising, the adrenaline starting to grip her body in spasms. The guards in front of the them drew their swords and started to advance, and Emlyn heard the guards behind them catching up.
+
+"You catch me" Orin replied, and pointing to Emlyn's right along the walkway he whispered "The window".
+
+Without thinking Emlyn sprinted towards the window, her body once again in agony, she willed her body to give it everything she had and burst through the glass. She raised her arms to take protect her face, and felt the glass slice at her, agony gripping her forearms as she dived into the cool night air.
+
+Suddenly she felt Meranis' Power and drew on it once more. Ecstasy filled her, her pain disappearing into the abyss of euphoria that the Power covered her in. 
+
+The ground rushed to her and she rolled to get her feet under her as she thundered into the ground, the air being pushed out of her lungs by her collision with the courtyard. Emlyn rolled to lessen the impact and looked up at the window she had just dived through to see Orin's siloutte diving through the window, his legs flailing in the air as two crossbow bolts flew out the window over his head.
+
+Emlyn ran towards him and tried to predict where he would fall. As Orin careened through the night Emlyn braced herself once again for impact. as Orin pinwheeled downward Emlyn threw her arms open and caught him around the chest as he flew towards the hard stone.
+
+The impact hit her like a chargin cavalry horse, as she was once again knoecked off her feet, careenning over the dull paving stones gripping Orin tightly as she could. As the world rotated around her she could hear the front doors of The Mint open and the soldiers poured out into the courtyard to try and surround them.
+
+"Okay?" Emlyn asked as she disentangled herself from Orin, who gave a short nod, a graven look on his face.
+
+"Time to fly again" she said, and bent down to give him another boost over the walls. Shaking, he placed his foot in her hands and she sent him flying into the air and onto the wall.
+
+The soldiers charged at her, inhuman words, growls and screams spilling from their mouths. Their swords caught brilliant reflections of the moon in their polished steel. And Emlyn saw the hate in their eyes.
+
+She bent down into a crouch and kicked off violently, evading their swords and rocketing to the top of the wall. Too much. She knew it immediately, she had used to much power, she would go sailing right over the wall. 
+
+Time seemed to slow to a crawl, she saw the wall flying past her face, before it gave way to crenelations and then nothing but air. As she reached the peak of her jump, she looked down saw the concrete courtyard below, the soldiers all staring up at her, disbelieving. 
+
+Under any normal circumstances she would be fine, well she would live, if she could just land on her feet in the street, but after all that she had been through tonight, she wasn't so sure anymore.
+
+Suddenly a rope shot past her face, and she instinctively, grabbed at it and pulled.
+
+Emlyn felt herself, getting pulled in towards the wall, when suddenly she saw Orin shooting towards her, pulled bodily off his feet by the strength of the her pull. Without thinking, she curled into a tight ball and felt Orin shoot over her head, the two of them in some kind of bizarre airborne dance, Emlyn open herself up for the landing and made a firm landing on the top of the wall, her feet looking for purchase on the dry stone.
+
+Orin. It was a single thought, violent and urgent. His brief flight brought by pulling his rope was coming to an end he began once again to fall. Emlyn, coiled the rope in around her with a panicked urgency.
+
+The rope became taught with about ten feet between her and orin as he went hurtling past her, in a determined silence from a man who had every reason to be screaming at the top of his lungs.
+
+The pressure on the rope suddenly increased like the kick of a bull, the roped snapped taught, Shocking Emlyn's body, causing her to grit her teeth, as she took Orin's full weight. Planet Drinker or not, she still had the same weight, and Orin was far heavier than her. Momentum was not in her favour here.
+
+Everything went quiet and Emlyn held her breath, straining against the rope. She looked both ways along the wall, expecting guards to come running, surely they had made too much noise.
+
+But when no one came, Emlyn started to pull on the rope and inch by inch she lifted Orin back up, until finally his arm came over the side of the wall and he rolled over and they both collapsed onto the cold hard stone.
+
+The charge of footsteps cam ethundering over the walls as guards closed on their position and Emlyn and Orin picked up their tired bodies and pushed themselves to the limit.
+
+"Get the rope", Orin yelled throwing her a spare coil, and Emlyn started tying it around the crenellations, while Orin projected his throwing knives into the darkness, where Emlyn could hear the screams indicating they had made contact.
+
+"Done", Emln yelled as she threw herself over the wall and started to bounce down the wall to the bottom. Looking up, she saw Orin swing over the wall as well and they both dropped to the  street outside.
+
+As they dissapeared into a dark alley, Emlyn heard the front gate open and the cries of soldiers in the night. They limped through the alleys, changing direction at random until they came out at another main road.
+
+And then Emlyn heard the bark of the hounds.
+
+"Noo..." Emlyn moaned, as Orin grabbed her arm and pulled her onward.
+
+14.
 ---
 
 Random stuff
