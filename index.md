@@ -792,6 +792,57 @@ And then Emlyn heard the bark of the hounds.
 14.
 ---
 
+Orin threw his last knife and the dog went scittering to the ground, a yelp of pain escaping its throat. "I'm out" Orin gasped.
+
+"Me too" Emlyn whimpered. "And I don't have the strength for another fight. I am drawing on Meranis just to walk. If I lose her again, I am going to collapse."
+
+"Just keep going" Orin coaxed. "We are almost out. Go"
+
+They limped onwards, through the maze of dingy streets and dark alleys. Everything hurt, Emlyn was in complete agony. Just moving one leg in front of the other took a monumental force of will. 
+
+Emlyn could smell the ocean. They must be near the port, the salty air called for freedom, they were far away from their persuers now. With the final dog slain, surely there was no way that anyone could find them now.
+
+"Dead end" Orin whispered, turning his back on the brick wall forbidding their way at the end of the narrow passage.  Emlyn turned and spotted the dark siloutte looming at the mouth of the road, blocking their way.
+
+A whistle rang clear in the night sky and The Captain walked into the light, summoning his beleagured troops to assist him.
+
+"Go Rosie. To the roof. I will meet you at the home."
+
+"What?" Emlyn asked.
+
+"Trust me. I can handle them, but you have to go. Now! GO!" Orin yelled. 
+
+Emlyn turned and knelt, and kicked off. She stared down as she once again took to the air. Orin was looking up at her, and she felt as sense of doom overcoming her.
+
+The fatigue wracked her body as she fell to the roof. Forcing herself back to her feet, she stared into the alley below and watched as Orin began to fight his way to safety.
+
+Except, he didn't. Orin was knealt down, hands on his knees in sumbission, while The Captain approached him with two soldiers flanking him.
+
+"A Planet Drinker? Not something a man such as I gets to see everyday." I am going to enjoy tracking her down."
+
+Orin sat, completely passive, staring The Captain down. Emlyn could see that his breath was calm, face composed, resigned to his fate.
+
+"Not going to run anymore? Not gonna fight?"
+
+Emlyn froze. She had never thoughth that this would happen. Orin would allow himself to get captured, requiring that he be taken to a holding cell in some dark corner of the city dungeons.
+
+Orin knew too much to be captured. He had probably already taken the poison which would be coursing through his veins. He would be able to distract them just enough to allow her to get away, but he would pass away during the night.
+
+And Emlyn knew what she should do and what she must do. 
+Emlyn dived. 
+
+Putting the last of her strength into one big leap, she soared down back to the street, locking onto The Captain.
+
+"There!", The Captain screamed, pointing into at her. She heard the bolt loose from the shadows as a soldier brought his arsenal to bear.
+
+Emlyn felt a searing white heat engulf her and she felt herself tumble through the air and she crumpled onto the cold paving stones and in a blinding light she fell unconcious.
+
++++
+
+Emlyn woke to pain and darkness blah blah blah
+
+
+
 Random stuff
 ---
 
