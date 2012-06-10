@@ -839,7 +839,27 @@ Emlyn felt a searing white heat engulf her and she felt herself tumble through t
 
 +++
 
-Emlyn woke to pain and darkness blah blah blah
+Emlyn woke to pain and darkness. Her whole body ached, and she felt beyond nausious. She rolled over and she felt her her head and felt the warm blood soaked into her pillow.
+
+So, she had made it back to the inn. It occured to her that she was lucky to have woken up at all. She could just as easily have not. The number of times she could just as easily have died... Best not to think about it.
+
+She tried to call out for Orin. But her mouth wouldn't move. Just opening her mouth waws too painful. She groaned quietly, but didn't move.
+
+But if she had saved Orin's life, it had all been worth it. That he had been ready to give his life to save hers... Well she guessed she always knew that he would. Orin was like a father too her. She always knew, deep down, that he would lay down his life for her. And now he had.
+
+Emlyn found herself starting to cry. And as the tears streamed down her face, her chest convulsed in sobs and the spasms wracked her with more pain.
+
+The thought of losing Orin was more than she could bear. The weight of how close it had been fell on her and it was more than she could stand. 
+
+Orin meant everything to her. Her anger burned at the thought that he would sacrifice himself to save her. What was she supposed to do without him? Live the rest of her life in regret. Hating herself for not being strong enough to save them both.
+
+And she loathed herself as she selfish thought about what everyone else would think. How could a Planet Drinker let her partner die, why had she been there if not to support her superior?
+
+She would have been released from the House, asked to spend the rest of her life as a military weapon, training as a simple brute, a killing machine. Too kind a penance for her complete incompetence.
+
+Her thoughts darkened and she slipped back into unconciousness. She drifted in out throuhout the night, her pain being the only way she could tell when she was lucid. 
+
+When she awoke a gain, the sun was already high int he sky and she felt Orin's hand on her forehead.
 
 
 
