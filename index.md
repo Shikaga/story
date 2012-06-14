@@ -839,6 +839,89 @@ Emlyn felt a searing white heat engulf her and she felt herself tumble through t
 
 +++
 
+As Emlyn jumped away Orin knelt down and prepared his last hope. He pulled a dark cardboard cyclinder from his pouch and rubbed it vicously on the ground.
+
+He felt the pyromancer's trick ignite and threw it out into the night and tucked his head into his chest and squeezed eyes tightly.
+
+"There!", a cry went out from the Captain and his heart started pounding, his fear rising, every second expecting a sword to his chest or neck.
+
+Suddenly her head Emlyn cry out, her voice reverberating off the narrow alley walls, followed by a bone crunching thud as something thundered into the hard stone.
+
+Orin's heart quavered, but he held his eyes tightly shut and counted each of his heart beats, preparing for what was about to come. 
+
+A white hot heat washed over him, and he heard the screams of the guards and the unsteady footsteps and metal clanging on the street as the guards wheeled backwards falling over their own feet.
+
+He rose to his feet and charged towards The Captain, who stood, dazed, with his sword held two handed in a defensive stance. Emlyn lay on the ground at his feet. A pool of blood was starting to form around her head.
+
+Orin's hand went to his belt, but he had used his last knife and all his other weapons would bring him too close to The Captains broadsword's lethal range.
+
+Plan B. Orin darted forward and took a long kick at The Captain's stomach, who keeled over, his sword drooping low.
+
+Orin stepped back and straightened up to deal sharp kick to the side of The Captain's head. At least he tried, but his kick went too low and caught The Captain on the shoulder, sending them booth reeling.
+
+Orin felt his age, a heavy weight pressing down on his body, a thick miasma of quicksand slowing down his every movement. Ten years ago he could have run a hundred leagues and dealt 100 such kicks with pinpoint precision.
+
+But he simply wasn't the man he used to be. Smarter and wiser, definitely, but he simply couldn't do what he once had.
+
+There was no time to think of that now. He wheeled wildly, found his footing and dived once again at The Captain,  knocking them both to the ground. 
+
+The Captain's tried to bring his sword to bear, but Orin pushed his arm aside and, using both his hands, dashed The Captain's fist against the hard ground sending scattering his sword out of reach.
+
+But The Captain rolled with the attack and threw blind punch into Orin's side, winding and dislodging Orin from his dominant position.
+
+Orin rolled away and came to his feet, while his leaden lungs heaved trying to suck in the cool night air. Doubt clouded Orin's mind as he prepared for the next bout.
+
+Suddenly The Captain's eyes cleared, and locking eyes on his sword he leapt to his feet. Orin's heart hammered in his chest and he dashed to intercept just as The Captain caught his foot on loose paving stone and stumbled to his knees, mere inches away from the sword's hilt.
+
+Taking his second chance, Orin whipped his leg up violently and this time he made good contact and The Captain went limp as his chin met Orin's foot.
+
+Orin looked upon the makeshift battlefield and saw three young soldiers, staring blindly out into the dark night. They clearly hadn't been able to look away and had a full blast of his flash paper.
+
+Within a split second Orin had disregarded them and he dived to Emlyn's side, his heart in his throat, praying silently once again. Perhaps he should have been a priest he thought rhyley.
+
+"Emlyn? Emlyn?" he whispered frantically in her ear, more loudly than was wise, but he didn't think anyone heard him. She didn't move. Orin placed his ear ove her mouth and heard her shallow breathing and his heart started again.
+
+Orin dove his arm's under her and pulled her too his chest. She was so small, barely a weight at all. He often forgot just how fragile she was. She hid behind the mask of her incredible gift and it was difficult for anyone who knew her not to find her incredibly intimidating.
+
+But the reality was that she was barely more than a child. In another life she would still be running around with ribbons in her hair, hoping that she would marry a prince and talking about her dream wedding with her friends.
+ 
+And now she could be inches from death. Orin rose to his feet, supporting her head in the crook of his left arm and letting her legs dangle from his right. Her hair was drenched in blood which dripped wetly to the ground, splattering into the large pool which had already formed.
+ 
+Orin ran. Faster than he ever had before. Emlyn's white face lolled, her eyes wide open in the pale moonlight, staring blankly at the stars above. 
+ 
+He reached reached the bay and after stopping to ensure that Emlyn had stopped bleeding, lest he give away their path, he continued on to their Inn.
+ 
+Emlyn now felt like a sack of bricks in his grip and his arm's ached, but he ran on and on, until, at last, the inn was in sight.
+ 
+He hammered on the door, and an eternity passed before the door gave cracked open and he charged through.
+ 
+"We were beset by footpads" he gasped to the startled landlady. "Please, you must get the doctor".
+
+"There's no doctors near here, sir. And there is no way I am venturing out into the night with footpads a'prowling".
+
+"Just get out of my way then" he said, staring at her darkly.
+
+"Don't get me wrong, I want to help, but me getting hurt won't her out any" she replied.
+
+"I'm sorry" Orin said, looking down for a second. "Thank you, have a good night" he said and  charged up the stairs to their room on the third floor  leaving the landlady looking up at him disbelievingly.
+
+Orin fumbled with the lock Orin and fell into the room with Emlyn in his arms.
+
+Using one last burst of strength he heaved her onto the desk and sank into one of the chairs, head in his hands. How had it all gone so wrong? He had done everything right, every precaution taken. Shouldn't he have even tried to go to the Mint? He was pretty sure of what was happening, but he had to confirm didn't he?
+
+No time to think about that now, Emlyn's life still hung in the balance. Rising to his feet he put his fingers to her neck. A pulse. She had lost a lot of blood, but not too much and life still coursed through her.
+
+His relief was intense, but he knew there were still danger. Even tiny cuts could be fatal if they became infect and this was way more than a tiny cut.
+
+He grabbed the wash basin, placed it below her head and started to wash her wound, her long brown hanging into the basin. The water ws soon filled with blood and Orin started to treat the wound with herbs and bandage.
+
+Finally Orin had to accept that there was nothing else that he could do and rested for a minute before carrying her to her room. He laid her on the bed and stripped her of her sweat soaked and bloodstain clothes before tucking her beneath the covers.
+
+And finally, after a lifetime had passed, Orin fell into a Emlyn's chair and fell into a fitful slumber.
+
+15.
+---
+
 Emlyn woke to pain and darkness. Her whole body ached, and she felt beyond nausious. She rolled over and she felt her her head and felt the warm blood soaked into her pillow.
 
 So, she had made it back to the inn. It occured to her that she was lucky to have woken up at all. She could just as easily have not. The number of times she could just as easily have died... Best not to think about it.
@@ -861,7 +944,13 @@ Her thoughts darkened and she slipped back into unconciousness. She drifted in o
 
 When she awoke a gain, the sun was already high int he sky and she felt Orin's hand on her forehead.
 
+"No fever", he whispered as her eyes flickered open momentarily before she squeezed them tight against the blinding light shining through the window. Straining, she moved one of her hands from under the covers and reached out for Orin limply. He caught her hand and she entwined her fingers in his. His hand felt intensely hot.
 
+"You have lost a lot of blood. You are very cold. But I don't think that you have an infection" he whispered. She squeezed his hand softly, and lay still.
+
+She found herself crying again. Relief overwhelmed her, just knowing that Orin was still okay was enough to put her heart at rest. She nodded off again into a dreamless sleep, before being brought around again by Orin sitting her up against the wall.
+
+"Time to drink", he said, placing a cup of cool water to her lips. She suddenly realized how thirsty she was and drank the water down in one long slow gulp. 
 
 Random stuff
 ---
