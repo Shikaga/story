@@ -8,73 +8,73 @@ The usual quiet and serenity of the palace had given way to the anxiety and fear
 
 Captain Jenkins, the first of the Kings Guard, rushed through the ornate passages, their usual pristine cleanliness dissolved into disarray. Whispers and shouting echoed through the hallways in equal measure, members of the royal household staring anxiously from their chamber doors and holding onto each other for comfort.
 
-He passed couple of guards who were half way down the corridor, drawn away from their post the commotion. “Stand at your post!” he shouted, and they jumped backwards, retaking their position beside the door. 
+He passed couple of guards who were half way down the corridor, drawn away from their post the commotion. "Stand at your post!" he shouted, and they jumped backwards, retaking their position beside the door. 
 
-“Oh Captain, there you are” another soldier declared, in relief, forgetting all formalities.
+"Oh Captain, there you are!" another soldier declared, in relief, forgetting all formalities.
 
-“Lead the way Seargent Kyle”, the Captain responded, putting enough emphasis in his voice to remind him to maintain his discipline.
+"Lead the way Seargent Kyle", the Captain responded, putting enough emphasis in his voice to remind him to maintain his discipline.
 
-“The King’s chamber’s Sir”, he Seargent Kyle replied, and The Captain placed a hard look on his face and marched onwards.
+"The King's chamber's Sir", he Seargent Kyle replied, and The Captain placed a hard look on his face and marched onwards.
 
-They continued on, deep into the keep, towards the safest of places, the inner sanctum where the King’s chambers lay. 
+They continued on, deep into the keep, towards the safest of places, the inner sanctum where the King's chambers lay. 
 
-Where was the discipline, The Captain thought. These were meant to be the best of the best, the king’s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
+Where was the discipline, The Captain thought. These were meant to be the best of the best, the king''s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
 
-“I will have order here!”, The Captain roared and each guard there stood to attention right where they were. He gave orders quickly as he walked onwards into the kings personal rooms. Once he had issued the undisciplined halfwits their orders, he entered the kings chambers.
+"I will have order here!", The Captain roared and each guard there stood to attention right where they were. He gave orders quickly as he walked onwards into the kings personal rooms. Once he had issued the undisciplined halfwits their orders, he entered the kings chambers.
 
 He looked upon the room. Carnage. Everything in the room had been tossed aside, the clear and resonating signs of a struggle were clear to see. Vases smashed on the ground, one of the bed curtains had been pulled and now hung from one sad hook. Blood, there was so much blood. From the bed, to the floor to the wall, a thick trail of life stretched across the room.
 
 And at the end of the trail, slumped against the wall: The King. He was covered in more than a few blade marks all along his left arm and face, and huge gouge sat in his chest, just below his heart. 
 
-He must have fought bravely. The thought flashed through the Captain’s head. At seventy years old, for him to fight back against an assassin’s blade, when attacked in the middle of the night? There are some skills that a warrior never forgets.
+He must have fought bravely. The thought flashed through the Captain's head. At seventy years old, for him to fight back against an assassin's blade, when attacked in the middle of the night? There are some skills that a warrior never forgets.
 
 But it had all been in vain. From the second the assassin had penetrated their defences the king had been dead. What did they do wrong? Not enough guards? Not enough walls?
 
 There was no point second guessing yourself. The guard crossed to the bed and took up a sheet and covered the kings naked body with it, just as an old man barrelled into the room, out of breath, gasping.
 
-“I am afraid that you are too late Doctor Virchow”, he said as the old man entered. The First Doctor of the Realm looked so odd. 
+"I am afraid that you are too late Doctor Virchow", he said as the old man entered. The First Doctor of the Realm looked so odd. 
 
-His usual illustrious clothing, with velvet and golden thread embroidery were replaced this evening by a cheap full length shift of cloth. He wasn’t wearing any shoes. Funny how something like that seems so odd at a time like that The Captain thought.
+His usual illustrious clothing, with velvet and golden thread embroidery were replaced this evening by a cheap full length shift of cloth. He wasn't wearing any shoes. Funny how something like that seems so odd at a time like that The Captain thought.
 
 The surgeon crossed slowly to the king side, his bare feet wading into the large pool of blood around the king. He knealt down and put his hands to the back of his hand to the kings face, and then placed his palms all the way down his chest and to his legs. Finally coming to terms with the fatal truth, he sighed deeply and stood back.
 
-The Captain placed his hand lightly on the old man’s shoulder. 
+The Captain placed his hand lightly on the old man's shoulder. 
 
-“We knew each other since we were kids”, the doctor said quietly. “My father used to bring me with him when he came to examine his father. We used play together sometimes.”
+"We knew each other since we were kids", the doctor said quietly. "My father used to bring me with him when he came to examine his father. We used play together sometimes."
 
-“We will get whoever did this Rufus” The Captain said, but the old surgeon just looked away. They sat down on the bed, and the surgeon just looked at his feet.
+"We will get whoever did this Rufus" The Captain said, but the old surgeon just looked away. They sat down on the bed, and the surgeon just looked at his feet.
 
-“Sir”, a guard said, standing to attention.
+"Sir", a guard said, standing to attention.
 
-“Report”, The Captain clipped.
+"Report", The Captain clipped.
 
-“We have them sir, the assassin”
+"We have them sir, the assassin"
 
-“Where?” The Captain asked, standing up suddenly.
+"Where?" The Captain asked, standing up suddenly.
 
-“They are being taken to the cells as we speak. Found unconscious in the West Gallery sir, knife still in hand”
+"They are being taken to the cells as we speak. Found unconscious in the West Gallery sir, knife still in hand"
 
-“Let’s go” he said, and The Captain marched down towards the dungeons, as a group of apprentice surgeons charged past him to the king chambers, bags of equipment in hand. He could hear Rufus talking to them quietly as he marched to the dungeons.
+"Let's go" he said, and The Captain marched down towards the dungeons, as a group of apprentice surgeons charged past him to the king chambers, bags of equipment in hand. He could hear Rufus talking to them quietly as he marched to the dungeons.
 
 As he walked down the wide passages of the royal keep, each of the guards stood to attention, showing the respect due the Captain of the Guard. Some of them looked so young, hardly ready for the war that was now inevitable.
 
-It hardly seemed fair at all, being sent into the fray, barely more than children. But had he not been that age, even younger, when the last war broke out? Hadn’t he done everything he could to enlist? To defend the kingdom and honour the king?
+It hardly seemed fair at all, being sent into the fray, barely more than children. But had he not been that age, even younger, when the last war broke out? Hadn't he done everything he could to enlist? To defend the kingdom and honour the king?
 
-Somehow it didn’t seem the same anymore, forty years had changed him beyond recognition. His many commendations for battles won and victories taken seemed a distant memory now. The events of another man’s life.
+Somehow it didn't seem the same anymore, forty years had changed him beyond recognition. His many commendations for battles won and victories taken seemed a distant memory now. The events of another man's life.
 
 But if it was going to be war, he was going to ensure that they were going to win. And the first step was to find out who was behind this heinous crime.
 
 Descending the cold stone steps, the steel gates clinked open as he approached them. They were deep underground now, fires burnt in brackets attached all along the world, the only light in a world of perpetual darkness.
 
-“The prisoner is ready for questioning Captain”, the ancient jailor said, a toothless grin on his face, clearly eager to have a new victim to maltreat. 
+"The prisoner is ready for questioning Captain", the ancient jailor said, a toothless grin on his face, clearly eager to have a new victim to maltreat. 
 
-“No one else has spoken to the him yet?”, the captain asked.
+"No one else has spoken to the him yet?", the captain asked.
 
-“No sir, the assasin only just regained consciousness” the guard said, with a hint of laughter in his voice. “But I think you might find them a little different from what you are expecting Captain”, he said, finding his key on his giant ring of keys.
+"No sir, the assasin only just regained consciousness" the guard said, with a hint of laughter in his voice. "But I think you might find them a little different from what you are expecting Captain", he said, finding his key on his giant ring of keys.
 
 The jailor turned the long key in the lock and swung the cell door open and the Captain looked in the door. Two guards sat either side of a table, and the prisoner sat, face down on the table, manacles snaking from the floor to the his limbs.
 
-Sitting down at the table, the Captain loomed and slowly cracked his knuckles trying to be as imposing as he could. “So, we are about to have a little chat”, The Captain said, nodding to one of the guards. The grabbed and the prisoners head yanked his head off the table roughly.
+Sitting down at the table, the Captain loomed and slowly cracked his knuckles trying to be as imposing as he could. "So, we are about to have a little chat", The Captain said, nodding to one of the guards. The grabbed and the prisoners head yanked his head off the table roughly.
 
 A sixteen year old girl, hair matted to her face with sweat, stared into The Captains head.
 
@@ -319,107 +319,107 @@ Emlyn felt a rough hand grab her shoulder.
 
 6.
 ---
-“Ahhh”, Emlyn yelled jumping a foot in the air, her heart racing. Wresting herself free, she turned on her attacker, a look of fear and danger on her face.
+"Ahhh", Emlyn yelled jumping a foot in the air, her heart racing. Wresting herself free, she turned on her attacker, a look of fear and danger on her face.
 
- “Woah, calm down”, the man said, taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
+ "Woah, calm down", the man said, taking a step back, palms raised in a calming tone. He was handsome, Emlyn thought, and not as old as she had thought at first glance. In fact looking at him, he was hardly more than a boy, probably just a few years older than her. But his tallness and his manner made him seem a bit older.
 
-“Sorry, didn’t mean to startle you” he said, reassuringly, “I was just trying to get your attention.”
+"Sorry, didn't mean to startle you" he said, reassuringly, "I was just trying to get your attention."
 
-Emlyn stared at him for a moment. She noticed that she was suddenly holding the power of Meranis, her instinct to save herself overriding her years of meditation. She took a deep breath, letting the power of Meranis leave her. “What do you want?” she said, straightening her hair unconsciously.
+Emlyn stared at him for a moment. She noticed that she was suddenly holding the power of Meranis, her instinct to save herself overriding her years of meditation. She took a deep breath, letting the power of Meranis leave her. "What do you want?" she said, straightening her hair unconsciously.
 
-“Oh sorry, I just noticed what you were reading, ‘The Antiquity of Krisdom’ by Engust Dalson?’ he said questioningly.
+"Oh sorry, I just noticed what you were reading, ‘The Antiquity of Krisdom' by Engust Dalson?' he said questioningly.
 
-“What?”
+"What?"
 
-“Err, the book. That you are reading. It’s right there, in your pocket” he said pointing.
+"Err, the book. That you are reading. It's right there, in your pocket" he said pointing.
 
-“Yeah so?”, said Emlyn coldly, still staring at him.
+"Yeah so?", said Emlyn coldly, still staring at him.
 
-“Well, it is just so seldom that I see other young people intetrerseted in history. In fact, now I think of it, you are the only person I have ever seen read such a book who is under 50”
+"Well, it is just so seldom that I see other young people intetrerseted in history. In fact, now I think of it, you are the only person I have ever seen read such a book who is under 50"
 
-“What are you trying to say?”
+"What are you trying to say?"
 
-“Nothing!”, he said defensively, suddenly becoming a little flustered. “I just thought it would be nice to talk to another young person for a change.”
+"Nothing!", he said defensively, suddenly becoming a little flustered. "I just thought it would be nice to talk to another young person for a change."
 
-Emlyn’s heart was finally starting to calm down after her scare. She knew she really shouldn’t feel resentment towards him. It wasn’t really his fault that she had been put on edge by one of guards. In fact, thinking about it, he hadn’t even really grabbed her that hard, she had just been so nervous that the slightest touch had sent her into a wild panic.
+Emlyn's heart was finally starting to calm down after her scare. She knew she really shouldn't feel resentment towards him. It wasn't really his fault that she had been put on edge by one of guards. In fact, thinking about it, he hadn't even really grabbed her that hard, she had just been so nervous that the slightest touch had sent her into a wild panic.
 
-She took another deep breath, “I’m sorry, let’s start this again. My name is Rosie”
+She took another deep breath, "I'm sorry, let's start this again. My name is Rosie"
 
-“Robert, good to meet you Rosie” he said, putting out his hand for a handshake, a look of relief on his face as she took his hand.
+"Robert, good to meet you Rosie" he said, putting out his hand for a handshake, a look of relief on his face as she took his hand.
 
-“So you like history do you Robert?” she said with a slight tone of mischief. “Well then, I am sure that you can tell me what the primary cause of the ‘Revolution of Adlard’ was.”
+"So you like history do you Robert?" she said with a slight tone of mischief. "Well then, I am sure that you can tell me what the primary cause of the ‘Revolution of Adlard' was."
 
-“Of course, though it depends upon which historian you put the most faith in.” he said knowingly. “Now as far as I am concerned Paler gives the most accurate account of the revolution, as he puts the primary cause to be Kings outlawing of weapon exports to the South Sea Islands.
+"Of course, though it depends upon which historian you put the most faith in." he said knowingly. "Now as far as I am concerned Paler gives the most accurate account of the revolution, as he puts the primary cause to be Kings outlawing of weapon exports to the South Sea Islands.
 
-The people of Adlard obviously being primarily metalworkers were hit very hard by this in a year where the crops failed. Suddenly finding themselves without food and with a surplus of weapons, the good people of Adlard decided that perhaps they were perfectly capable of governing themselves”
+The people of Adlard obviously being primarily metalworkers were hit very hard by this in a year where the crops failed. Suddenly finding themselves without food and with a surplus of weapons, the good people of Adlard decided that perhaps they were perfectly capable of governing themselves"
 
-Robert’s had a perfect oratory voice, Emlyn thought as they walked towards the sea together. When he stated something, he made you believe it as fact. There was no doubt in his voice that was he said was correct. 
+Robert's had a perfect oratory voice, Emlyn thought as they walked towards the sea together. When he stated something, he made you believe it as fact. There was no doubt in his voice that was he said was correct. 
 
-“So what do you make of Cheapers account of the revolution being primarily an idealistic one, brought on by a belief in self-government?”
+"So what do you make of Cheapers account of the revolution being primarily an idealistic one, brought on by a belief in self-government?"
 
-“Bah”, replied Robert discountingly. “Cheaper is, as usual, simply pushing his own agenda, creating martyrs for his cause and evil warlords out of anyone who looked at him the wrong way.”
+"Bah", replied Robert discountingly. "Cheaper is, as usual, simply pushing his own agenda, creating martyrs for his cause and evil warlords out of anyone who looked at him the wrong way."
 
 They sat on a bench by the harbour wall, looking back at the market, as the hustle and bustle of people resumed. Looking down curved wall, Emlyn could still make out the stiring pattern of people moving to attention as the Royal Procession passed by them. She wondered quite how a King got to be so revered so that everyone would drop what they were doing when he passed by. I mean, in Kris of course it was law. But it had not always been so. Once, the people of Kris had done so out of pure admiration. A national love for a single man who had done everything that he could for his people. 
 
-Of course, eventually the king passed away and his son took over. Well, his son was a great man as well, why shouldn’t they show him the respect they had shown his father? And over the generations the sign of respect had become so ingrained in their culture that to not do it would be a sign of defiance. And in this age, no one defied the King.
+Of course, eventually the king passed away and his son took over. Well, his son was a great man as well, why shouldn't they show him the respect they had shown his father? And over the generations the sign of respect had become so ingrained in their culture that to not do it would be a sign of defiance. And in this age, no one defied the King.
 
-“So yeah, as far as I am concerned, even then you should take Cheaper’s accounts with a great deal of salt” Robert said, clearly concluding his point which Emlyn had completely missed.
+"So yeah, as far as I am concerned, even then you should take Cheaper's accounts with a great deal of salt" Robert said, clearly concluding his point which Emlyn had completely missed.
 
-“Hmmm, well it definitely seems that you have an elementary knowledge of some history” she said defying his proud tone. “My turn”
+"Hmmm, well it definitely seems that you have an elementary knowledge of some history" she said defying his proud tone. "My turn"
 
 They continued talking, quizzing each other on books they had read, their knowledge of ancient kings and queens long past and other minutia of history. Emlyn suddenly found herself laughing, feeling truly happy for the first time since leaving home. Rob had an easy going attitude, and a quick wit to boot.
 
 Suddenly looking up she saw Orin coming down the street.
 
-“Oh no, look at the time!” she said, looking up at the clock tower which rose over the harbour. “I’ve gotta go, I'm going to be late”
+"Oh no, look at the time!" she said, looking up at the clock tower which rose over the harbour. "I've gotta go, I'm going to be late"
 
-“Wait, where can I meet you again?” Robert said, grabbing her hand suddenly anxious. Emlyn stared down at where he had grasped her, and he suddenly let go, looking away.
+"Wait, where can I meet you again?" Robert said, grabbing her hand suddenly anxious. Emlyn stared down at where he had grasped her, and he suddenly let go, looking away.
 
-“Err, how about here? Tomorrow, at the sixth bell after noon.”
+"Err, how about here? Tomorrow, at the sixth bell after noon."
 
-“I will be there”
+"I will be there"
 
-Emlyn could feel Roberts eyes on her as she briskly walked in Orin’s direction. Silently signalling Orin to follow her, she ducked down a sidestreet and out of sight.
+Emlyn could feel Roberts eyes on her as she briskly walked in Orin's direction. Silently signalling Orin to follow her, she ducked down a sidestreet and out of sight.
 
-“Meet someone?” Orin asked.
+"Meet someone?" Orin asked.
 
-“Just some guy at the market”
+"Just some guy at the market"
 
-“Excellent. Well, I have some news. Best that we were on our way” Orin said, striding off towards their Inn, with Emlyn following close behind.   
+"Excellent. Well, I have some news. Best that we were on our way" Orin said, striding off towards their Inn, with Emlyn following close behind.   
 
 7.
 ---
 They sat at their small desk in their room at the Apple Pony, the windows flung open to try and entice any small night breeze into the humid room. The desk had been pulled from its original position facing the wall and placed in the centre of the room. The desk was covered by a large map of the city of Ren and a variety of documents sat on top of that, with Orin's smoking box holding down one end of the map and an empty candlestick holding down the other.
 
-“So, it appears that events move quickly without us. Kris is preparing for war.” Orin said. “And I suspect that this fact is already well known in Verris by now, but in our travels, we must have missed the message.”
+"So, it appears that events move quickly without us. Kris is preparing for war." Orin said. "And I suspect that this fact is already well known in Verris by now, but in our travels, we must have missed the message."
 
 Orin took his pipe from his pocket and slowly and methodically started to fill it it. Once he was satisfied that it was just the way he wanted, he stood up, pulled a taper from the mantle and lit his pipe from a candle.
 
-“Our mission has not changed. Whatever developments may have occurred, there is no way for The House to contact as, and they are relying on us to do our jobs quickly and effectively. Once we have achieved our objectives, we can return home via the fastest possible route and deliver our reports”
+"Our mission has not changed. Whatever developments may have occurred, there is no way for The House to contact as, and they are relying on us to do our jobs quickly and effectively. Once we have achieved our objectives, we can return home via the fastest possible route and deliver our reports"
 
 Orin started to suck on his pipe thoughtfully. Emlyn just sat, waiting for him to finish. When he was in this mood, it was best to let him speak out loud and wait for him to ask her a direct question.
 
-“To wit, we need to somehow put our hands on as much information about the current state of their military as soon as possible. Now, as it so happens, before we arrived, I got wind of a man who might be happy to provide us with such information, for the right price that is.”
+"To wit, we need to somehow put our hands on as much information about the current state of their military as soon as possible. Now, as it so happens, before we arrived, I got wind of a man who might be happy to provide us with such information, for the right price that is."
 
 Orin pulled on his pipe again, his eyes looking over the glowing bowl conspiratorially. Here it comes, Emlyn thought, he is wondering whether I have figured it out for myself yet. But she was still at a loss as to what things Orin expected her to have put together.
 
-“This man, a senior quartermaster as it so happens, has a thing for the horses. A fine distraction for most men, but for some, a disease worse than any plague”.
+"This man, a senior quartermaster as it so happens, has a thing for the horses. A fine distraction for most men, but for some, a disease worse than any plague".
 
-Everything suddenly clicked. “Yes, a man like that can get into quite a bit of debt, loose every last penny he has. And then, take more than a few pennies that he doesn’t have, and make a bet which will put all his debt straight.” Emlyn explained with glee.  
+Everything suddenly clicked. "Yes, a man like that can get into quite a bit of debt, loose every last penny he has. And then, take more than a few pennies that he doesn't have, and make a bet which will put all his debt straight." Emlyn explained with glee.  
 
-“Finding himself so far over the edge, any man would give away a little information to someone who could save him from his fate. You basically had a sure thing, if you pardon the pun. But then his horse won! What were the chances?”
+"Finding himself so far over the edge, any man would give away a little information to someone who could save him from his fate. You basically had a sure thing, if you pardon the pun. But then his horse won! What were the chances?"
 
 Orin was smilling at her now, his proud eyes lit by his pipe, letting her explain her brilliant deductions.
 
-“Of course you couldn’t have that. It was necessary to ensure that he would misplace his betting card before he could cash it. And then he would have no choice but to take your hand”
+"Of course you couldn't have that. It was necessary to ensure that he would misplace his betting card before he could cash it. And then he would have no choice but to take your hand"
 
-“No choice?” asked Orin. “Why wouldn’t he just claim that the money he took from the coffers was stolen by the break in this morning?”
+"No choice?" asked Orin. "Why wouldn't he just claim that the money he took from the coffers was stolen by the break in this morning?"
 
-“Hmm”. Yes, that would be the logical choice of action, Emlyn thought. By breaking in I gave him the perfect excuse to explain away any money that he may have lifted from the military coffers. “I don’t know”
+"Hmm". Yes, that would be the logical choice of action, Emlyn thought. By breaking in I gave him the perfect excuse to explain away any money that he may have lifted from the military coffers. "I don't know"
 
-“Hmmm” Orin said, imitating her contemplative look. “Well, why don’t you think about it some more. See if you can figure it out”.
+"Hmmm" Orin said, imitating her contemplative look. "Well, why don't you think about it some more. See if you can figure it out".
 
-Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. “Ahhh, here we go”. TBC.
+Orin shuffled through the papers on his desk, holding them up, trying to read them in the dim light of the room. "Ahhh, here we go". TBC.
 
 8.
 ---
@@ -429,19 +429,19 @@ The city guard took their patrols through the wide boulevards of the inner city,
 
 The trick with travelling at night, was to look like neither a criminal nor a victim, a difficult balance to strike. More than anything, it was how you carried yourselves. As they walked down the road you could see the brigands and ruffians muttering to themselves, before noticing swords and the look of absolute self-confidence that Orin and Emlyn held, and decided that they wanted none of it.
 
-Orin navigated them through the streets and allies with his ever present coolness. He finally stopped, looked around for anyone who might have noticed them. “Okay, here we are. Our quartermaster is in the house with the red door”, Orin whispered, indicating. “As we have already discussed, there is no assurance that this isn’t a trap. You know what to do if everything goes south?”. Emlyn nodded. “Okay, let’s take a quick look around and then I will go for it. You stay here and warn me if anything happens.”
+Orin navigated them through the streets and allies with his ever present coolness. He finally stopped, looked around for anyone who might have noticed them. "Okay, here we are. Our quartermaster is in the house with the red door", Orin whispered, indicating. "As we have already discussed, there is no assurance that this isn't a trap. You know what to do if everything goes south?". Emlyn nodded. "Okay, let's take a quick look around and then I will go for it. You stay here and warn me if anything happens."
 
 They took a few minutes to look around the neighbourhood, before Orin crossed his way to the door and knocked firmly. A few seconds went by and the door cracked open. A face appeared before swinging the door open to admit Orin and closed behind him.
 
-Suddenly feeling very alone, Emlyn looked around rapidly for anyone who might be approaching, but the street was dead quite. If she had been dressed in her usual dresses she probably wouldn’t have lasted two seconds on the street before every brigand was after her. But disguised as boy with a sword at her side anyone who looked at her would see a mercenary, if a short one, no doubt waiting to escort their master during his shady dealings.
+Suddenly feeling very alone, Emlyn looked around rapidly for anyone who might be approaching, but the street was dead quite. If she had been dressed in her usual dresses she probably wouldn't have lasted two seconds on the street before every brigand was after her. But disguised as boy with a sword at her side anyone who looked at her would see a mercenary, if a short one, no doubt waiting to escort their master during his shady dealings.
 
-Funny thing Emlyn thought, that people would make such judgements based on your looks. If she had was stood here as a woman, she would be seen as easy pickings, a lamb to the slaughter. And yet, disguised as a mercenary, she didn’t reflect even a candle of her true threat. A mask on a mask. A weapon, disguised as a woman, disguised as a mercenary.
+Funny thing Emlyn thought, that people would make such judgements based on your looks. If she had was stood here as a woman, she would be seen as easy pickings, a lamb to the slaughter. And yet, disguised as a mercenary, she didn't reflect even a candle of her true threat. A mask on a mask. A weapon, disguised as a woman, disguised as a mercenary.
 
 Emlyn watched from the shadows as a group of drunks heading home together, half stumbling half crawling to down the street. Their voices grew louder as they passed her, threats of violence interspersed with drunken slurs of fraternal love and raucous laughter. As they passed and voices started to disappear in the foggy night air, the door cracked open again and Orin emerged, and headed back in the direction of the inn.
 
-“So, how did that go?” Emlyn asked as she caught up with him.
+"So, how did that go?" Emlyn asked as she caught up with him.
 
-“Very well, for all parties involved. We have some very boring documents and our quartermaster will no longer be in the debt of men who break fingers.” Orin chuckled to himself. “Well, I must say, I can’t think of the last time I have had such a productive day. Let us get home before anything spoils it.
+"Very well, for all parties involved. We have some very boring documents and our quartermaster will no longer be in the debt of men who break fingers." Orin chuckled to himself. "Well, I must say, I can't think of the last time I have had such a productive day. Let us get home before anything spoils it.
 
 9.
 ---
@@ -452,49 +452,49 @@ When Emlyn woke the sun was already well over the horizon, probably about eighth
 
 Leaving her room she found Orin at the desk pouring over a red book filled with numbers and figures. His glasses looked odd on him, as though he was a different person entirely. Older, more learned. Without looking up he moved his fountain pen from where it hovered over his own book of pristinely copied notes and placed it back on the table and closed the bottle of ink. 
 
-“Breakfast?” he inquired. 
+"Breakfast?" he inquired. 
 
-“Sounds good.” Emlyn replied, suddenly aware of how hungry she was.
+"Sounds good." Emlyn replied, suddenly aware of how hungry she was.
 
 They headed down to the common room and the sat down at their usual table and were approached immediately by a waiter. Orin ordered their usual breakfast.
 
 
 
-“It is amazing how much information can be held in numbers Roise” Orin said after the waiter had retreated a sufficient distance. “Why, some would think that the fact that 2 tons of iron were shipped to a bell founder was some management slip up. I see cannons, being produced faster than the military can handle it”. 
+"It is amazing how much information can be held in numbers Roise" Orin said after the waiter had retreated a sufficient distance. "Why, some would think that the fact that 2 tons of iron were shipped to a bell founder was some management slip up. I see cannons, being produced faster than the military can handle it". 
 
-And what would you make of a constant increase in the amount of grain being delivered to the local barracks? Or the sudden jump in gold being sent to the provinces of Kris?”
+And what would you make of a constant increase in the amount of grain being delivered to the local barracks? Or the sudden jump in gold being sent to the provinces of Kris?"
 
-They all point to war. A war the likes of which we have never seen. And I suspect that we are not prepared. The question is, what information can we retrieve that will land a killing blow before it begins?”
+They all point to war. A war the likes of which we have never seen. And I suspect that we are not prepared. The question is, what information can we retrieve that will land a killing blow before it begins?"
 
-“It’s going to be the Planet Drinkers isn’t it? We are going to have to neutralize them. If we have our Drinkers and they don’t have theirs, we can easily turn back their armies when the planets are in phase.”
+"It's going to be the Planet Drinkers isn't it? We are going to have to neutralize them. If we have our Drinkers and they don't have theirs, we can easily turn back their armies when the planets are in phase."
 
-Something about this just seemed sad to Emlyn. The Drinkers didn’t ask for any of this, they just happened to be born on the wrong side of the world, and for some reason that meant that they would have to be killed.
+Something about this just seemed sad to Emlyn. The Drinkers didn't ask for any of this, they just happened to be born on the wrong side of the world, and for some reason that meant that they would have to be killed.
 
-“If you are feeling some kind of loyalty to the Drinker of Kris, don’t” Orin said. “I understand the feeling, you both share a bond. But what about all those soldiers who are going to die on the battlefields? They are just as much human as you are, but they too are going to die because they follow the wrong King.”
+"If you are feeling some kind of loyalty to the Drinker of Kris, don't" Orin said. "I understand the feeling, you both share a bond. But what about all those soldiers who are going to die on the battlefields? They are just as much human as you are, but they too are going to die because they follow the wrong King."
 
-Emlyn saw the logic behind Orin’s words, but it didn’t change how she felt. She did feel a connection, to all the Planet Drinkers. There was something that most people couldn’t understand. There was a pain to being born a weapon, a possession of the state. Most people could make choices; they could live their own lives. She never could.
+Emlyn saw the logic behind Orin's words, but it didn't change how she felt. She did feel a connection, to all the Planet Drinkers. There was something that most people couldn't understand. There was a pain to being born a weapon, a possession of the state. Most people could make choices; they could live their own lives. She never could.
 
-“I will do my duty. We will do our duty” she said, with a tone somewhere between determination and resignation.
+"I will do my duty. We will do our duty" she said, with a tone somewhere between determination and resignation.
 
-“You are young, one day you will understand the sacrifices that need to be made for the greater good” Orin said quietly, but he didn’t quite meet her eyes.
+"You are young, one day you will understand the sacrifices that need to be made for the greater good" Orin said quietly, but he didn't quite meet her eyes.
 
 They spent the day going through the documents, Orin making notes about his suspicions and discussing his thoughts with Emlyn. Emlyn wondered to himself where whether such rampant speculation actually produced any actionable evidence. Indeed, it seemed to Emlyn, all one would have to do to ensure that your enemy surrendered immediately was to write down that you had ordered one million uniforms for your army and ensure that their spies received a copy.
 
 But there was definitely a method to his madness, and by the time it was the fourth bell after lunch, Orin had drawn conclusions that Emlyn could not deny. Orin sat back and started on his pipe again, carefully compacting the leaf into the bowl, lighting it and pulling on the smoke smoothly.
 
-“The question now, is what further information can we glean, now that have the first clue”, Orin said thoughtfully. “The data that we have now, is strategically valuable, plenty here about troop numbers and deployment location. But most of that will be provided by our eyes and ears in the field. One can only move a body of men so quickly, we will have that information in time to act on it no matter what. No, we need to provide The House with something further, something truly shattering”.
+"The question now, is what further information can we glean, now that have the first clue", Orin said thoughtfully. "The data that we have now, is strategically valuable, plenty here about troop numbers and deployment location. But most of that will be provided by our eyes and ears in the field. One can only move a body of men so quickly, we will have that information in time to act on it no matter what. No, we need to provide The House with something further, something truly shattering".
 
 Orin went off into yet another one of his trances, and Emlyn figured it was best to give him some time. She pulled out her book once again, pulled both of her feet onto the chair so that she sat in a crouched position, and started to read.
 
 There was something about history. It brought about a certain feeling of inevitability in her. When most people read a history book, they would think about all the things that once happened long ago. When Emlyn read a history book, she thought about all the things that were going to happen again in the future.
 
-I mean, when you consider that Verris and Kris have been to war three times in the last two hundred years, how could we not be due another one after three hundred years of peace? Of course, if her mathematics tutor knew what she was thinking would have given her a very stern talking to about prior results affecting future events, but then again, Emlyn thought that Mathematicians didn’t really understand the real world.
+I mean, when you consider that Verris and Kris have been to war three times in the last two hundred years, how could we not be due another one after three hundred years of peace? Of course, if her mathematics tutor knew what she was thinking would have given her a very stern talking to about prior results affecting future events, but then again, Emlyn thought that Mathematicians didn't really understand the real world.
 
 No, this was bound to happen. And with the planets in the positions they were in now, Verris was very exposed. Legudis, the planet of the people of Kris, was coming into its most powerful phase in over a century. It provided the Planet Drinkers of Kris with unlimited agility.
 
 Many people thought Emlyn was fast. When she kicked or punched, they swore that she simply moved her limbs from one place to the other without going through the space between. Yet, this paled in comparison to the recordings of the Planet Drinkers of Legudis. One Legudis Drinker could slit the throat of a hundred men, before one of them to could draw his blade. What good was her strength, if her enemy simply sliced her throat the second she saw them?
 
-And if that wasn’t bad enough, Meranis was going out of phase, and would not be at its strongest again for more than two years. An attack now would be deadly. There had to be something they could do, some way to reverse the oncoming apocalypse. 
+And if that wasn't bad enough, Meranis was going out of phase, and would not be at its strongest again for more than two years. An attack now would be deadly. There had to be something they could do, some way to reverse the oncoming apocalypse. 
 
 More Stuff here
 
@@ -922,11 +922,11 @@ And finally, after a lifetime had passed, Orin fell into a Emlyn's chair and fel
 15.
 ---
 
-Emlyn woke to pain and darkness. Her whole body ached, and she felt beyond nausious. She rolled over and she felt her her head and felt the warm blood soaked into her pillow.
+Emlyn woke to pain and darkness. Her whole body ached, and she felt beyond nauseous. She rolled over and she felt her hair matted to the blood soaked pillow.
 
-So, she had made it back to the inn. It occured to her that she was lucky to have woken up at all. She could just as easily have not. The number of times she could just as easily have died... Best not to think about it.
+So, she had made it back to the inn. It occurred to her that she was lucky to have woken up at all. She could just as easily have not. The number of times she could just as easily have died... Best not to think about it.
 
-She tried to call out for Orin. But her mouth wouldn't move. Just opening her mouth waws too painful. She groaned quietly, but didn't move.
+She tried to call out for Orin. But her mouth wouldn't move. Just opening her mouth was too painful. She groaned quietly, but didn't move.
 
 But if she had saved Orin's life, it had all been worth it. That he had been ready to give his life to save hers... Well she guessed she always knew that he would. Orin was like a father too her. She always knew, deep down, that he would lay down his life for her. And now he had.
 
@@ -955,29 +955,29 @@ She found herself crying again. Relief overwhelmed her, just knowing that Orin w
 Random stuff
 ---
 
-The chimes rang out for fifth bell. “I’m going out” Emlyn said. Orin looked up at her, locked her with his sharp stare, before saying “Okay”. 
+The chimes rang out for fifth bell. "I'm going out" Emlyn said. Orin looked up at her, locked her with his sharp stare, before saying "Okay". 
 
 Emlyn got up to leave, grabbed her warm coat and her bag and headed out the door.
 
 Wow, that was easy Emlyn thought. She had been expecting a fight, Orin demanding to know where she was going, insisting that she was putting herself in way too much danger heading out to see a boy so close to nightfall. She had already rehearsed in her head telling Orin that she could take care of herslf, thank you very much, to which Orin would reply that he was perfectly aware of that, but that she might expose herself, that they would know that there was a Drinker in the city. She would then reply that after stealing the book the yesterday they probably already knew, and besides, she would be careful.
 
-But no, Orin just let her go. That was all the more concerning. Had he already figured everything out, knew where she was going and who she was meeting? Quite possible, you didn’t become a head spymaster without being able to know things that there was no way that you could know. But then again, maybe he just trusted her. Perhaps he just believed that she would not do anything stupid. Perhaps he was expecting her to come back with a key piece of information that would be the key to their victory.
+But no, Orin just let her go. That was all the more concerning. Had he already figured everything out, knew where she was going and who she was meeting? Quite possible, you didn't become a head spymaster without being able to know things that there was no way that you could know. But then again, maybe he just trusted her. Perhaps he just believed that she would not do anything stupid. Perhaps he was expecting her to come back with a key piece of information that would be the key to their victory.
 
-“Anngghh”, Emlyn yelled as she headed down the stairs and out of the Inn. How was it that with a single word Orin could put her so much on edge? He probably didn’t even realise that he had made her so anxious, he had probably gone straight back into his trance, plotting and scheming their way to triumph.
+"Anngghh", Emlyn yelled as she headed down the stairs and out of the Inn. How was it that with a single word Orin could put her so much on edge? He probably didn't even realise that he had made her so anxious, he had probably gone straight back into his trance, plotting and scheming their way to triumph.
 
 And she was going out to meet a boy. Oh well, Emlyn thought, the die is cast, best to just hope that the odds are in your favour, and she headed to the docks to meet Robert.
 
 ...
 
-Emlyn spotted Robert leaning on the Harbour Wall where they had left each other the day before. He was reading a book one handed, in what he no doubt thought was a cool pose. His eyes were on his book, but he didn’t seem to absorbed in it, his eyes kept leaving the pages and scanning the market.
+Emlyn spotted Robert leaning on the Harbour Wall where they had left each other the day before. He was reading a book one handed, in what he no doubt thought was a cool pose. His eyes were on his book, but he didn't seem to absorbed in it, his eyes kept leaving the pages and scanning the market.
 
 If there was one thing that Emlyn believed in, it was getting even. And there was no way that she was going to let Robert get away with making her jump ten foot in the air.
 
-Of course, getting the jump on him would be difficult, the way he was leaning on the wall would make it difficult to sneak up on him. Of course, that would be a problem if she wasn’t a trained spy. This was her specialty
+Of course, getting the jump on him would be difficult, the way he was leaning on the wall would make it difficult to sneak up on him. Of course, that would be a problem if she wasn't a trained spy. This was her specialty
 
 The first tactic a spy had, was misdirection. Everyone looks one way, you go the other. A distraction then Emlyn thought looking around. What I need is a commotion, perhaps someone shouting. That will get Robert to look in that direction and I can surprise him from the other.
 
-But how? If she had been on a job, it wouldn’t be hard. Just tap Meranis, and snap one of the supports of a nearby stall. Next time anyone put any pressure on it, it would collapse making a thunderous noise.
+But how? If she had been on a job, it wouldn't be hard. Just tap Meranis, and snap one of the supports of a nearby stall. Next time anyone put any pressure on it, it would collapse making a thunderous noise.
 
 But that seemed a little much for a harmless prank, and Orin would most certainly have disapproved. A spy should be able to get by on their wits, not their strength. No other spies would have that option. 
 
