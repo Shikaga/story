@@ -18,7 +18,7 @@ He passed couple of guards who were half way down the corridor, drawn away from 
 
 They continued on, deep into the keep, towards the safest of places, the inner sanctum where the King's chambers lay. 
 
-Where was the discipline, The Captain thought. These were meant to be the best of the best, the king''s personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
+Where was the discipline?, The Captain pondered. These were meant to be the best of the best, the king's personal guard. And yet here they were, no one sure of what they should be doing, milling around like chickens with their heads cut off.
 
 "I will have order here!", The Captain roared and each guard there stood to attention right where they were. He gave orders quickly as he walked onwards into the kings personal rooms. Once he had issued the undisciplined halfwits their orders, he entered the kings chambers.
 
@@ -951,6 +951,51 @@ When she awoke a gain, the sun was already high int he sky and she felt Orin's h
 She found herself crying again. Relief overwhelmed her, just knowing that Orin was still okay was enough to put her heart at rest. She nodded off again into a dreamless sleep, before being brought around again by Orin sitting her up against the wall.
 
 "Time to drink", he said, placing a cup of cool water to her lips. She suddenly realized how thirsty she was and drank the water down in one long slow gulp. 
+
+Enghhh...., new StoryLine...
+  
+-----
+
+As they crested the hill Jake sighed with happiness. "Ahhh, there's no place like home is there Mark?".
+"Indeed", Mark replied.
+Rens lay before them, the capital city of Kris shining like a jewel before the sparkling blue Ferudian Sea. They weren't close enough to smell it yet.
+"You can have some time to see your family Jake", Mark said. "It is four hours to sundown and there won't be much time to do anything today."
+
+Jake leant back in his saddle, flexing his stiff fingers in front of him thinking of his young wife and two children.
+
+"But I will be will be fetching you at the crack of dawn tomorrow. If there truly is a Drinker in The Capital it is vital that we eliminate the threat as quickly as possible."
+
+"Yes sir", the young officer replied, unconsciously willing his horse into a trot in his eagerness to make the most of today.
+
+"Then would you like to have dinner with me tonight sir? I am sure that Samantha would like to see you again" Jake offered politely.
+
+Mark laughed heartily. "You know as well as I do that Sam hates me, as I am always the one stealing you away from her", Sam said, a grin on his face. 
+
+"Thanks for the offer Jake, it is most kind. But I think it is best that you spend as much time with your family as possible, besides, I suspect that I will have plenty to do at the Keep before the morrow."
+
+Jake's eyebrows rose, locking his eyes with Mark's but he knew better than to ask further. Mark would tell him whatever he needed to know when the time was right.
+
+As they trotted up to the gate the guards, noticing the insignia on their impeccably maintained uniforms, snapped to attention and saluted. The two horseman nodded in respect and pulled up.
+
+"What news to report Lieutenant?" 
+
+"Little enough Seargent <Is this a logical rank?>." the guard said. "The usual crime and villainy that the summer harvest brogans, but nothing remarkable."
+
+"Indeed, well that is good news, at ease", Mark replied, and they trotted on through the gates.
+
+So, the guards haven't been put on alert, Jake thought to himself. Hardly surprising, that could only spark panic and rumor. Suddenly every commoner would be swearing that their neighbours were all enemy Planet Drinkers and their would be panicked mobs and lynchings in the street. And besides, what would warning the guards accomplish? They would be extra vigilant for someone who looks completely normal and they have no way to fight? Foolishness.
+
+No, it would have to be up to them, Jake acknowledged. If they had been brought back the Crown was clearly very concerned about the threat. A pair of Scryers like themselves were a precious commodity, and they had had to abandon their mission to return home at all speed.
+
+They had received their orders two days ago and they had ridden hard to return to Rens. So, the attackers would have had three days to make good their escape, or go fully underground. Or accomplish their mission. 
+
+Of course, if they had succeeded, surely the city would be alive with gossip and rumors. But no, it was just another beautiful summers days, they had made it in time.
+
+"Alright, I am headed up to the keep, you are headed home", Mark said pulling up his horse at one of the wide intersections.
+
+Jake put out his hand and Mark shook his hand. 
+
+"Dawn tomorrow?" Jake asked. "See you then"
 
 Random stuff
 ---
