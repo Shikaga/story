@@ -978,11 +978,11 @@ Mark laughed heartily. "You know as well as I do that Sam hates me, as I am alwa
 
 Jake's eyebrows rose, locking his eyes with Mark's but he knew better than to ask further. Mark would tell him whatever he needed to know when the time was right.
 
-As they trotted up to the gate the guards, noticing the insignia on their impeccably maintained uniforms, snapped to attention and saluted. The two horseman nodded in respect and pulled up.
+As they trotted up to the Second Gate the guards, noticing the insignia on their impeccably maintained uniforms, snapped to attention and saluted. The two horseman nodded in respect and pulled up.
 
 "What news to report Lieutenant?" 
 
-"Little enough Seargent <Is this a logical rank?>." the guard said. "The usual crime and villainy that the summer harvest brings, but nothing remarkable."
+"Little enough Colonel." the guard said. "The usual crime and villainy that the summer harvest brings, but nothing remarkable."
 
 "Indeed, well that is good news, at ease", Mark replied, and they trotted on through the gates.
 
@@ -1048,8 +1048,57 @@ Within seconds the paper had been torn assunder and both girls were crouched ove
 
 "It says Kimberly, so you will always know it's yours", he said leaning down and giving her a kiss on her head. "Now why don't the two of you go and play with your new dolls while I help your mother prepare dinner", he said, giving them one final hug, before they dashed into the back of the house with gleeful voices.
 
+As their voices died away, he pulled Kim into another passionate kiss, them both making up for lost time. Things seemed to change so quickign when he was aware. He could hardly believe how much bigger his two girls had gotten in the four months that he had been away, he feared that next time he returned after a long trip they might be married with kids of their own if they kept up this pace.
+
+And the house looked different. Nothing was where is had been when he had left. The kitchen table had been rotated and heavy shutters and curtains which had remained drawn during winter had now be thrown open to invite the light summer breeze to give relief from the pounding heat. There were new furnishings, clearly keeping up with the latest fashions with the other mothers of the neighbourhood.
+
+"I am so happy you are back", she said, once again breaking off their elongated embrace.
+
+"Me too", Jake replied, as they both found their seats.
+
+"So" she said, with a neutral expression on her face, "how long do I have you for this time."
+
+"Ahh". He would have to be careful about how he directed this one. "Well, I am afraid that I am not technically on leave  yet. I am still going to have to be reporting to the barracks everyday."
+
+"You finally got a City deployment?" she said, her face brightening visibly.
+
+"In a sense, but I am afraid it is not permanent and I am not sure how long it is going to be. But for the time being I will be in Rens, and after this I will have my leave before my next deployment."
+
+"Well, that's something. Perhaps if you are lucky, they will decide to keep you on, training the young cadets in the Keep perhaps.", Jessica said hopefully.
+
+"Perhaps", he replied, perhaps a little too sharply. "Lets not talk about that now Jessy, there will be plenty of time later.", he said more sofltly this time. Jessica just nodded. "Dinner?" he asked rising from his chair.
+
+And for a while, they forgot their problems and worries and talked Jessy talked about how well the girls were doing in their lessons and what a lovely dancer Anna was and Jake talked about all the beautiful places that he had seen and would one day take all of them. And all the love and hope and beauty that Jake had hidden deep down in his soul while he had been away started to come back to the surface. And by the time they sat down for their evening meal Jake was once again part of a family.
 
 17.
+---
+
+Leaving Jake at the turn, Mark headed up to the keep. There were many things he needed to know. Things that were too dangerous to be entrusted to the bird wing, whther encrypted or not. Scant little had been stated, but if they had been ordered to return to Rens at all speed then it could mean only one thing. And if that was the case then they were in severe peril. 
+
+Of course The Capital was protected at all times against all possible threats. While details were hidden from even him, there were at least a dozen active Scryers guarding The King at all times. And when he was seated in Rens they guarded the entire city, patrolling the ports and gates, looking out for anything suspicous. 
+
+For just as a Planet Drinkers could pull on power of the Planets when they were in correct conjunction, Scryers could detect any attempt to do so. Drinkers got their power by abosrbing the power from the planets they were attuned with. This power was being radiated through the cosmos at all times, but for most people, it would just travel straight through them, as if they were panes of glass.
+
+But when a Planet Drinker was exposed to their power, they would absorb it, as though a cloud passed over sun, casting a shadow on the ground. And Scryers could feel these "shadows". It was like passing a sudden cool spot where the sun as been obscured. It took a lot of focus and practice to be able to pick up the small changes, but it soon became second nature.
+
+A Drinker pulling on their power on the oher hand was like turning night to day. They would cast long shadows of power, that could be felt by any Skryer in the vicinity. An experienced Skryer would even claim that they could see pattern as sure as if it were a shadow cast by the sun.
+
+But their were ways other than Skryers to detect the presence of spies. And so Mark decided that he would make a quick detour before reporting to the Keep.Riding onto a side street where he wouldn't be recognized he found a young courier, slipped him a letter, a coin and whispered a few words and  headed for the Keep as young boy sprinted off.
+
+It was a long ride from the Second Gate to the Royal Keep. As the security got heavier and the patrols more frequent Mark received more salutes and welcomes. Perhaps it would have been better to enter The City under cover of night, he thought to himself. Any Drinker with access to the rumour mill would know that two Scryers had just returned to Rens now. That could be disadvantageous to them.
+
+Still, there was nothing he could do about it now, and odd things happened every day, the he and Jake returning early was just another thing in hundreds.
+
+Finally approaching the gates he dismounted and handed his reigns to one of the stable boys who was nearby, knowing that he would ensure that his stallion was correctly taken care of.
+
+"Colonel Mark Hennis, here to see the Captain of the Guard", he declared to the guards, marching forward. The soldiers stepped back, allowing him into the first courtyard, where some of the younger officers were at morning drills. 
+
+One of the many opportunities that wealth brought was being able to buy your sons a commision at the Royal Keep where they would be one step away from power and glory. While any soldier could rise through the ranks, few ever did. There were too many advantages to giving the scarce promotions to soldiers from rich families. Debts and promises owed to you for a powerful lords son could be invaluable in time.
+
+Mark's feet carried him down the familiar corridors, towards office of The Captain of the Guard. At each checkpoint he was stopped, and finally outside the door was asked to give up his sword before he was finally admitted. He wouldn't need weapons to kill any of them, but you never knew with The Captain, at over sixty he was still as strong as an Ox.
+
+The doors opened at he stepped through to see The Captain sat at his desk, fixing the young Colonel with a cool gaze.
+
 ---
 
 Random stuff
