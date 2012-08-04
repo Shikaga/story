@@ -956,6 +956,9 @@ Enghhh...., new StoryLine...
   
 -----
 
+16.
+---
+
 As they crested the hill Jake sighed with happiness. "Ahhh, there's no place like home is there Mark?".
 "Indeed", Mark replied.
 Rens lay before them, the capital city of Kris shining like a jewel before the sparkling blue Ferudian Sea. They weren't close enough to smell it yet.
@@ -979,7 +982,7 @@ As they trotted up to the gate the guards, noticing the insignia on their impecc
 
 "What news to report Lieutenant?" 
 
-"Little enough Seargent <Is this a logical rank?>." the guard said. "The usual crime and villainy that the summer harvest brogans, but nothing remarkable."
+"Little enough Seargent <Is this a logical rank?>." the guard said. "The usual crime and villainy that the summer harvest brings, but nothing remarkable."
 
 "Indeed, well that is good news, at ease", Mark replied, and they trotted on through the gates.
 
@@ -996,6 +999,58 @@ Of course, if they had succeeded, surely the city would be alive with gossip and
 Jake put out his hand and Mark shook his hand. 
 
 "Dawn tomorrow?" Jake asked. "See you then"
+
+---
+
+Jake plodded down the familiar streets leading to his home. Some of shop keepers gave him a cheery wave as he rode, and wished him well on his return. He thanked them, but didn't slow his horse until he was finally within site of his home.
+
+He lived in a good part of Rens. Not the residence of the exceptionally rich, but home to shopkeepers and scribes and other welll off members of society. If his career went well and he received the promotion he deserved, he would be able to move his family to within the Royal Square, where his two girls would be able to attend the best schools and find good husbands.
+
+But for now, he was content. He tied his horse to the post by the water trough and he took the final few steps towards his home.
+
+Removing his hat, he stepped through the wide open door, eyes blinking, adjusting from the sun outside to the relative gloom inside. His wife Tracy looked up with a quizzical expression from where she was sat reading at the kitchen table, before launching out of her chair in a maniacal dash towards him.
+
+"My love!" she screamed, jumping into his arms and wrapping her legs around his waist. Bracing himself he caught her, engulfing her with his arms, his hat still in hand while she found his lips with hers. He lvoed how passionate Jessica was, which only became more intense after his long excursions.
+
+Finally after an eternity and entirely out of breath, he let her drop to the ground as his two girls peeked their heads around the corner. Kim was four years and Anna had just turned six. Her present was in his bag. 
+
+"Daddy", they chorused and he dropped to his knee and picked them both up in his arms.
+
+"Oh wow, you two have got really big!", he exclaimed, their laughter bubbling up and putting a huge grin on his face.
+
+"I was told you would be getting back until tomorrow! I wanted to prepare something special!", Jessica exclaimed in mock disappointment, wringing her hand
+
+"We rode hard, I wanted to get back to you as soon as possible." he said, pecking her on the cheek. "Seeing my girls is the only special thing that I need."
+
+Jake placed his daughters down again and dropped into a chair at the kitchen table, opening his bag.
+
+"Happy Birthday Anna!" he said, his eldest daughter looking up to him, an excited expression on her face. "I am sorry I wasn't here, but I got you a present!", he said, pulling a small package wrapped in brown paper from his bag and handing it to her.
+
+"And what do we say?", Jessica admonished as Anna's fingers darted to rip open the gift. 
+
+"Thank you Daddy!", she said, giving him a big smile before her eyes quickly darted back to the box.
+
+Within seconds the paper had been torn assunder and both girls were crouched over the prize. And with a squeal of delight Anna held a beautiful golden brooch in her hands.
+
+"Thak you daddy", she repeated, giving him yet another big hug, gazing at the brooch admiringly in her outstretched hand.
+
+"Here, let me put it on for you", Jessica said, affixing the pin to Anna's dress.
+
+"I have something else for the two of you", he said, once again tipping into his bag and this time withdrawing to matching, exquisitely worked porcelein dolls, in long flowing white dresses and carefully painted faces.
+
+"These are all the way from the city of Nermisis, where they make the best dolls, for only the most beautiful girls to play with he said, handing one doll to each of them. "I had these specially made for each of you", he said, pointing to where each of their names were perfectly embroidered in long flowing script into the back of the dresses.
+
+"Can you read what this says?", he asked his elder daughter.
+
+"Anna!", she said, looking up brightly.
+
+"And can you read what this says?" he asked Kim, but she only shook head. "Do you want to take a guess?" he asked cheerfully, but she only shook her head again, looking down. 
+
+"It says Kimberly, so you will always know it's yours", he said leaning down and giving her a kiss on her head. "Now why don't the two of you go and play with your new dolls while I help your mother prepare dinner", he said, giving them one final hug, before they dashed into the back of the house with gleeful voices.
+
+
+17.
+---
 
 Random stuff
 ---
