@@ -1048,7 +1048,7 @@ Within seconds the paper had been torn assunder and both girls were crouched ove
 
 "It says Kimberly, so you will always know it's yours", he said leaning down and giving her a kiss on her head. "Now why don't the two of you go and play with your new dolls while I help your mother prepare dinner", he said, giving them one final hug, before they dashed into the back of the house with gleeful voices.
 
-As their voices died away, he pulled Kim into another passionate kiss, them both making up for lost time. Things seemed to change so quickign when he was aware. He could hardly believe how much bigger his two girls had gotten in the four months that he had been away, he feared that next time he returned after a long trip they might be married with kids of their own if they kept up this pace.
+As their voices died away, he pulled Jessy into another passionate kiss, them both making up for lost time. Things seemed to change so quickign when he was aware. He could hardly believe how much bigger his two girls had gotten in the four months that he had been away, he feared that next time he returned after a long trip they might be married with kids of their own if they kept up this pace.
 
 And the house looked different. Nothing was where is had been when he had left. The kitchen table had been rotated and heavy shutters and curtains which had remained drawn during winter had now be thrown open to invite the light summer breeze to give relief from the pounding heat. There were new furnishings, clearly keeping up with the latest fashions with the other mothers of the neighbourhood.
 
