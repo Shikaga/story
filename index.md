@@ -959,10 +959,10 @@ Enghhh...., new StoryLine...
 16.
 ---
 
-As they crested the hill Jake sighed with happiness. "Ahhh, there's no place like home is there Mark?".
-"Indeed", Mark replied.
+As they crested the hill Jake sighed with happiness. "Ahhh, there's no place like home is there Marc?".
+"Indeed", Marcus replied.
 Rens lay before them, the capital city of Kris shining like a jewel before the sparkling blue Ferudian Sea. They weren't close enough to smell it yet.
-"You can have some time to see your family Jake", Mark said. "It is four hours to sundown and there won't be much time to do anything today."
+"You can have some time to see your family Jake", Marcus said. "It is four hours to sundown and there won't be much time to do anything today."
 
 Jake leant back in his saddle, flexing his stiff fingers in front of him thinking of his young wife and two children.
 
@@ -972,11 +972,11 @@ Jake leant back in his saddle, flexing his stiff fingers in front of him thinkin
 
 "Then would you like to have dinner with me tonight sir? I am sure that Samantha would like to see you again" Jake offered politely.
 
-Mark laughed heartily. "You know as well as I do that Sam hates me, as I am always the one stealing you away from her", Sam said, a grin on his face. 
+Marcus laughed heartily. "You know as well as I do that Sam hates me, as I am always the one stealing you away from her", Sam said, a grin on his face. 
 
 "Thanks for the offer Jake, it is most kind. But I think it is best that you spend as much time with your family as possible, besides, I suspect that I will have plenty to do at the Keep before the morrow."
 
-Jake's eyebrows rose, locking his eyes with Mark's but he knew better than to ask further. Mark would tell him whatever he needed to know when the time was right.
+Jake's eyebrows rose, locking his eyes with Marcus's but he knew better than to ask further. Marcus would tell him whatever he needed to know when the time was right.
 
 As they trotted up to the Second Gate the guards, noticing the insignia on their impeccably maintained uniforms, snapped to attention and saluted. The two horseman nodded in respect and pulled up.
 
@@ -984,7 +984,7 @@ As they trotted up to the Second Gate the guards, noticing the insignia on their
 
 "Little enough Colonel." the guard said. "The usual crime and villainy that the summer harvest brings, but nothing remarkable."
 
-"Indeed, well that is good news, at ease", Mark replied, and they trotted on through the gates.
+"Indeed, well that is good news, at ease", Marcus replied, and they trotted on through the gates.
 
 So, the guards haven't been put on alert, Jake thought to himself. Hardly surprising, that could only spark panic and rumor. Suddenly every commoner would be swearing that their neighbours were all enemy Planet Drinkers and their would be panicked mobs and lynchings in the street. And besides, what would warning the guards accomplish? They would be extra vigilant for someone who looks completely normal and they have no way to fight? Foolishness.
 
@@ -994,9 +994,9 @@ They had received their orders two days ago and they had ridden hard to return t
 
 Of course, if they had succeeded, surely the city would be alive with gossip and rumors. But no, it was just another beautiful summers days, they had made it in time.
 
-"Alright, I am headed up to the keep, you are headed home", Mark said pulling up his horse at one of the wide intersections.
+"Alright, I am headed up to the keep, you are headed home", Marcus said pulling up his horse at one of the wide intersections.
 
-Jake put out his hand and Mark shook his hand. 
+Jake put out his hand and Marcus shook his hand. 
 
 "Dawn tomorrow?" Jake asked. "See you then"
 
@@ -1073,7 +1073,7 @@ And for a while, they forgot their problems and worries and talked Jessy talked 
 17.
 ---
 
-Leaving Jake at the turn, Mark headed up to the keep. There were many things he needed to know. Things that were too dangerous to be entrusted to the bird wing, whther encrypted or not. Scant little had been stated, but if they had been ordered to return to Rens at all speed then it could mean only one thing. And if that was the case then they were in severe peril. 
+Leaving Jake at the turn, Marcus headed up to the keep. There were many things he needed to know. Things that were too dangerous to be entrusted to the bird wing, whther encrypted or not. Scant little had been stated, but if they had been ordered to return to Rens at all speed then it could mean only one thing. And if that was the case then they were in severe peril. 
 
 Of course The Capital was protected at all times against all possible threats. While details were hidden from even him, there were at least a dozen active Scryers guarding The King at all times. And when he was seated in Rens they guarded the entire city, patrolling the ports and gates, looking out for anything suspicous. 
 
@@ -1083,21 +1083,96 @@ But when a Planet Drinker was exposed to their power, they would absorb it, as t
 
 A Drinker pulling on their power on the oher hand was like turning night to day. They would cast long shadows of power, that could be felt by any Skryer in the vicinity. An experienced Skryer would even claim that they could see pattern as sure as if it were a shadow cast by the sun.
 
-But their were ways other than Skryers to detect the presence of spies. And so Mark decided that he would make a quick detour before reporting to the Keep.Riding onto a side street where he wouldn't be recognized he found a young courier, slipped him a letter, a coin and whispered a few words and  headed for the Keep as young boy sprinted off.
+But their were ways other than Skryers to detect the presence of spies. And so Marcus decided that he would make a quick detour before reporting to the Keep.Riding onto a side street where he wouldn't be recognized he found a young courier, slipped him a letter, a coin and whispered a few words and  headed for the Keep as young boy sprinted off.
 
-It was a long ride from the Second Gate to the Royal Keep. As the security got heavier and the patrols more frequent Mark received more salutes and welcomes. Perhaps it would have been better to enter The City under cover of night, he thought to himself. Any Drinker with access to the rumour mill would know that two Scryers had just returned to Rens now. That could be disadvantageous to them.
+It was a long ride from the Second Gate to the Royal Keep. As the security got heavier and the patrols more frequent Marcus received more salutes and welcomes. Perhaps it would have been better to enter The City under cover of night, he thought to himself. Any Drinker with access to the rumour mill would know that two Scryers had just returned to Rens now. That could be disadvantageous to them.
 
 Still, there was nothing he could do about it now, and odd things happened every day, the he and Jake returning early was just another thing in hundreds.
 
 Finally approaching the gates he dismounted and handed his reigns to one of the stable boys who was nearby, knowing that he would ensure that his stallion was correctly taken care of.
 
-"Colonel Mark Hennis, here to see the Captain of the Guard", he declared to the guards, marching forward. The soldiers stepped back, allowing him into the first courtyard, where some of the younger officers were at morning drills. 
+"Colonel Marcus Hennis, here to see the Captain of the Guard", he declared to the guards, marching forward. The soldiers stepped back, allowing him into the first courtyard, where some of the younger officers were at morning drills. 
 
 One of the many opportunities that wealth brought was being able to buy your sons a commision at the Royal Keep where they would be one step away from power and glory. While any soldier could rise through the ranks, few ever did. There were too many advantages to giving the scarce promotions to soldiers from rich families. Debts and promises owed to you for a powerful lords son could be invaluable in time.
 
-Mark's feet carried him down the familiar corridors, towards office of The Captain of the Guard. At each checkpoint he was stopped, and finally outside the door was asked to give up his sword before he was finally admitted. He wouldn't need weapons to kill any of them, but you never knew with The Captain, at over sixty he was still as strong as an Ox.
+Marcus' feet carried him down the familiar corridors, towards office of The Captain of the Guard. At each checkpoint he was stopped, and finally outside the door was asked to give up his sword before he was finally admitted. He wouldn't need weapons to kill any of them, but you never knew with The Captain, at over sixty he was still as strong as an ox.
 
-The doors opened at he stepped through to see The Captain sat at his desk, fixing the young Colonel with a cool gaze.
+The doors opened at he stepped through to see The Captain sat at his desk, fixing the young Colonel with a cool gaze. Marcus walked a few steps into the room before clipping his heels together in a salute, staring straight ahead. 
+
+"Sit", The Captain directed, waving his hand to the chair in front of his desk. Marcus relaxed his posture and sat down as the doors behind him closed with small click. Once he had sat down The Captain continued.
+
+"There are Drinkers in City. And they are almost certainly trying to assasinate the King". Marcus' face was locked in a neutral expression, but a thousand thoughts flashed through his mind at once. Who, what, why? The Captain rummaged through his draw and pulled out a red leather folder embossed with Royal Seal of Kris.
+
+"This is everything we know so far", The Captain said sliding folder to Marcus who promptly flipped it open.
+
+"Meranis... hmmm..." the First Scryer mused to himself. He flipped through the pages, his frown groing as he continued. Finally, he closed the file. "Well, this does make for interesting reading."
+
+"Yes. Well, congratualations, this is now your problem. We need you to find them and bring them in alive, assuming that they are still in Rens". The Captain started filling out some papers on his desks. His pen dashed across the page in flowing script, filling out the paperwork that kept the world turning.
+
+"You will have access to whatever resources you think that you need", The Captain said, handing one of the papers to the Colonel and placing it's duplicate in his own folder. "Remember, under no circumstances must these terrorists be killed during capture. It is imperative that we capture them alive. The girl especially. I expect your plan on my desk by ninth bell tomorrow."
+
+The Captain gave a dismissive gesture and Marcus stood up, saluted again and left by the same door.
+
+---
+
+He stood on the corner of a dark street watching the dispicable world slowly choke itself to death. He watched as footpads prowled the corners, the hoares plied their trade to the foul sailors and the lone rich men rode through, oblivious, in their carriages. 
+
+Marcus awaited his contact. It was time to find out what was really going on this city. Something didn't add up. If someone truly wanted the King dead he would be dead already. No matter what kind of security you had, you could not defeat a determined Planet Drinker assasin. But why just send a single drinker? And a young inexperienced girl at that. Not that Colonel Hennis would ever underestimate a Drinker for being a girl; once you had the power of a Planet inside you, you were more animal than man.
+
+But still, if you were attempting to kill The King, you would send a team. Four, five Planet Drinkers. A huge investment, few countries could boast that many Planet Drinkers. But to send just one Drinker and an old man made no sense. Verris was powerful, if they were truly behind this they would have got the job done. Something was wrong, and hopefully his contact would no why.
+
+In shadows across the street a carriage pulled up. With the curtains drawn the passenger was hidden, along with his dark passenger deep inside of him. There were unspeakable delights to be had by those with power. Sick pleasures and ravenous appetites, satiated by dining upon the desperate. Marcus could hear mumbles of the footman offering good money for a few hours work, hey you might even enjoy it. She would never be seen again. A long finger pointed out at a young beggar girl, barely an adolescent, cowering behind her friends. She shook her head, backing into the wall behind her but the clink of coin could clearly be heard, and her companions jostled her pushing her forward, towards her certain doom. She started to shake, but there would be no point crying now, no one would listen. 
+
+Marcus felt his anger build in him. Not just at the injustice that she was being subjected to, but at his complete powerlessness to do anything. Even if he could save this one, the rich were too powerful. All it would take is the right word in the right ear and before long he would be congratulated on a job well done and given a commision in a quiet part of the world, far from politics or war, a place where he could be swept under the rug and forgotten. 
+
+She took her last free steps and entered the hearse. The door slammed behind her and with a crack of reins the carriage departed and the beggar children squeeled with delight over their blood money.
+
+"So, you're still alive? Seems like I owe somebody some money". 
+
+"So it would seem, Loron", Marcus replied, his face turning in a smile to the man who had just leant on the wall next to him. "Although, at this point it might be easier for you to keep a list of the people you don't owe money to", he continued.
+
+"Hey, no using real names at clandestine meetings, Tobias.", Loron replied jestingly, as he pulled a pipe from his coat pocket and started packing it with tobacco. 
+
+"No one knows that name anymore. Tobias Kimin died a long time ago in unmarked grave in a land far away", Mark responded, his tone short.
+
+"Of course, my mistake", Loron acknwoledged, pulling a steel rod from his tobacco puching and stricking it sharply against the top of his pipe. A fwe seconds later the dark glow of burning tobacco illuminated his face and he pulled on the pipe deeply, illuminating the pair of them.
+
+"So", Loron continued, "what emergency brings you to call on a simpleton like me to meet you so urgently?"
+
+"Well, I was hoping that you could tell me. What on earth is going on in this city?"
+
+"Lost of things, I think you may need to be more specific. There is of course the harvest festival which there have been plenty of preperations for. Or perhaps, you are talking about the Mayor's daughters wedding, which was the talk of the town last month. Or are you talking about the ten Planet Drinkers who are roaming around the city, trying to assasinate the king".
+
+It appeared as though rumours were flying though the ranks. It appeared as though one Drinker had transformed into an army through retellings. According some the inside of the Royal Mint had been leveled by an eight foot giant, in it's destructive rage. In other tales the Planet Drinker took the form a beautiful seductress who would enslave you with just a stare. Suffice it to say, any story that was even remotely truthful was more likely coincidence than reasoned thought.
+
+"And what do you think?", Marcus inquired.
+
+"Well, I think it is likely that a couple of Planet Drinkers were in the Royal Mint the other night, but by now I am guessing they are long gone".
+
+"And their motive?"
+
+"Who can know. I am guessing that you know more than me."
+
+"The Captain thinks they're assasins."
+
+"Yes, well he would. It's his job to be paranoid", Loron conceded.
+
+Marcus stood deep in thought while Loron continued to suck on his pipe, illuminating the two of them. It appeared as though there wasn't going to be any simple solutions to this one. He was going to have to use old fashioned detective work here. He continued to quiz Lorin for any truths might be gleaned from a thousand disparate rumors, but it didn't seem promising. 
+
+Handing a bag of gold to Lorin, Marcus started to take his leave. 
+
+"I will send you a message if I find anything else out", Loron said putting out a hand. "Good doing business with you as always."
+
+"Indeed, please do. Take care of yourself Loron", and with that they seperated ways. It was time for Marcus to do what he did best. Search and Destroy.
+
+18.
+---
+
+Emlyn could feel Meranis start to peek over the horizon, her pain easing slightly as its warmth washed over her. Her body still ached, but with Meranis up, she would be able to shuffle around. She slipped out of bed, threw on a dress, bending over as she couldn't quite pull her arms above head height. She suddenly felt cold, and she pulled her blanket off her bed, tucked it around her and suffled through the door.
+
+As she entered the dining room Orin looked up from his papers and fixed her with a calm gaze.
+
+"Good to see you are  back to galivanting around". Emlyn gave a small smile, and sat down on the chair opposite him and pulled her blanket around herself.
 
 ---
 
