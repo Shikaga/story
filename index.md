@@ -1174,6 +1174,39 @@ As she entered the dining room Orin looked up from his papers and fixed her with
 
 "Good to see you are  back to galivanting around". Emlyn gave a small smile, and sat down on the chair opposite him and pulled her blanket around herself.
 
+"Well, I am glad that you are up, I was going to come an get you in a few minutes anyway", he said, removing his glasses and rubbing his eyes with his open palms.
+
+"We are escaping tonight", he continued, "this afternoon in fact, as soon as Meranis has set".
+
+Emlyn knew what that meant, and she wondered whether she had the will to continue. To make her flight without Meranis to stengthen her may literally be more than she could handle.
+
+"So, we are hunted then?", Emlyn inquired.
+
+"It would seem so. It makes sense for them to do so, and in the three days you have been laid up, they will have been scouring the city for you."
+
+Orin replaced his glasses and shuffled through his papers looking for the relevant ones.
+
+"I have these. And these", he said pushing the documents to her. "But more than that, one of my contacts tells me directly that they have recalled their elite Scryer team to the city".
+
+"Attempted assasination?", Emlyn whispered in an exasperated voice looking up from the stolen parchment. "Is there something you aren't telling me?"
+
+"This is the first I have heard of it I assure you. It's not the Houses position to assasinate kings. And I would have told you if that was our goal."
+
+"No you wouldn't", Emlyn quipped back.
+
+"No. I wouldn't", Orin acknowledged. "But there is no assasination plot." 
+
+"No, it wouldn't make any sense. But it most certainly is an odd conclusion to draw" Emlyn said thoughtfully.
+
+"Not really. For all we know the King may just have happened to be at The Mint that night, for reasons unknown to us.", Orin hypothesised. "It would most certainly explain how the guards arrived there so quickly. Also, you might not be aware but the captain of the Royal Guard was there. Very peculiar."
+
+That made sense to Emlyn, but Orin still wasn't convinced. They discussed the different possibilities, but the fact was that it was all irrelevant now. There was nothing for them to do at this point but return to Verris and report to the House.
+
+"Well, on that point, I have a point. But I suspect that you are not going to like it.
+
+19.
+---
+
 ---
 
 Random stuff
