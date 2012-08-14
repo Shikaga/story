@@ -1207,6 +1207,44 @@ That made sense to Emlyn, but Orin still wasn't convinced. They discussed the di
 19.
 ---
 
+"Okay listen up", Jake yelled, stepping up on a bench to rise above all the common soldiers. "We are going to go down the pier knocking on every door and talking to every person we come across."
+
+The solider's nodded dumbly, and Jake could see that he would be having his work cut out for him. These guys looked like they shared a rather small brain between them and they clearly didn't like the fact that they had to be up before seventh bell; man in his day...
+
+"Now remember, be courteous. We are trying to save a young girl from her kidnapper. Show everyone the picture, and ask specifically if they saw or heard anything three nights ago".
+
+He quickly barked directions, sending a group to ask pedestrians, one to check the ground floor homes and some to check the second and third floor rooms. There were a few officers, and he sent them to check the inn's and pubs along the promenade, hoping that they wouldn't inspect the bottom of every bottle personally.
+
+Marcus tossed Jake his reins as the soldiers scattered about their duties and Jake stepped off the bench.
+
+"And now just to hope you are right", Jake sighed, securing his foot in the left stirrup and throwing himself onto his gelding.
+
+"It would take quite a bit of foresight for anyone to make a decoy run after a serious fight like that. If our quarry is truly that brilliant in the face of shear panic, we have little hope of catching them". Marcus trotted his horse on down the board walk. "But more than likely he ran straight home, or to one of his safe houses. And someone knows something. I have already sent my most capable men to seek out all the doctors and back alley surgeons. If they seeked out help from the public, we will have them".
+
+Jake didn't suppose there was any point second guessing themselves. They had no clues aside from the blood trail which led from the alley in which the would-be assasins had fought their last stand. No ships had left that night, and none of the quatermasters on the docks had seen anyone matching their descriptions. Marcus' theory hinged on the concept that the Drinker would have truly exhausted herself on that night, when Meranis was at its Zenith.
+
+Any Planet Drinker became an unstoppable monster when their heavenly bodies were in conjunction. But it exacted a terrible toll, and if, as The Captain claimed, the Drinker had been knocked unconscious <i>while</i> holding Meranis they would not be going anywhere.
+
+There were a thousand things that could have happened since that event but their best chance was hoping that someone had seen an old man carrying a blood soaked girl.
+
+"Right, well it seems that you have everything under control here Jake", Marcus said, turning his horse to face into the city.  "I am going to have to go and see a man about a dog, or more precisely, a dog bout a plan", he continued, laughing dryly at his own joke. 
+
+"Yes sir", Jake replied, a slight look of confusion on his face.
+
+"Just keep moving down the pier. Make sure you talk to everyone an make sure not too many soldiers get lost in the pubs. I will be back by midday".
+
+And with that Marcus kicked his horse into a trot, heading into the city. Jake's slipped into a trance, thinking about how much he wished to be back home already. But hey, be glad for what you have. At least he had been able to sleep next to his wife last night for the first time in months. Not that they had done much sleeping.
+
+Jake could feel the Meranis as it made it's orbit across the sky. Jake could have pointed directly at it despite the summer sun was still low in the morning sky washing night sky. Meranis was like a breeze blowing against his skin at all times, but it provided no cooling and by the time it was midday they would all be sweating by the bucket load.
+
+Jake kept his eyes out, if the Planet Drinker was anywhere within sight he would be able to feel her shadow as she unconciously absorbed the Planet's power. If she was pulling on the power directly he would be able to feel her presence even through stone.
+
+He held his breath and concentrated, feeling the wind with every fibre of his being. But he could see nothing and feel nothing. This would be a long day.
+
+---
+
+
+
 ---
 
 Random stuff
