@@ -1109,7 +1109,7 @@ The doors opened at he stepped through to see The Captain sat at his desk, fixin
 
 "Yes. Well, congratualations, this is now your problem. We need you to find them and bring them in alive, assuming that they are still in Rens". The Captain started filling out some papers on his desks. His pen dashed across the page in flowing script, filling out the paperwork that kept the world turning.
 
-"You will have access to whatever resources you think that you need", The Captain said, handing one of the papers to the Colonel and placing it's duplicate in his own folder. "Remember, under no circumstances must these terrorists be killed during capture. It is imperative that we capture them alive. The girl especially. I expect your plan on my desk by ninth bell tomorrow."
+"You will have access to whatever resources you think that you need", The Captain said, handing one of the papers to the Colonel and placing it's duplicate in his own folder. "But this must remain absolutely secret. I want just you and your apprentice to bring them in. No troops. Ans remember, under no circumstances must these terrorists be killed during capture. It is imperative that we capture them alive. The girl especially. I expect your plan on my desk by ninth bell tomorrow."
 
 The Captain gave a dismissive gesture and Marcus stood up, saluted again and left by the same door.
 
@@ -1141,7 +1141,7 @@ She took her last free steps and entered the hearse. The door slammed behind her
 
 "Well, I was hoping that you could tell me. What on earth is going on in this city?"
 
-"Lost of things, I think you may need to be more specific. There is of course the harvest festival which there have been plenty of preperations for. Or perhaps, you are talking about the Mayor's daughters wedding, which was the talk of the town last month. Or are you talking about the ten Planet Drinkers who are roaming around the city, trying to assasinate the king".
+"Lots of things, I think you may need to be more specific. There is of course the harvest festival which there have been plenty of preperations for. Or perhaps, you are talking about the Mayor's daughters wedding, which was the talk of the town last month. Or are you talking about the ten Planet Drinkers who are roaming around the city, trying to assasinate the king".
 
 It appeared as though rumours were flying though the ranks. It appeared as though one Drinker had transformed into an army through retellings. According some the inside of the Royal Mint had been leveled by an eight foot giant, in it's destructive rage. In other tales the Planet Drinker took the form a beautiful seductress who would enslave you with just a stare. Suffice it to say, any story that was even remotely truthful was more likely coincidence than reasoned thought.
 
@@ -1207,43 +1207,77 @@ That made sense to Emlyn, but Orin still wasn't convinced. They discussed the di
 19.
 ---
 
-"Okay listen up", Jake yelled, stepping up on a bench to rise above all the common soldiers. "We are going to go down the pier knocking on every door and talking to every person we come across."
+"Alright, this looks like the place", Jake said as Marcus rode up to the Jake, taking in the strong sea breeze of the peer. "An old man returned in the middle of the night with a young girl, fifteen or sixteen the innkeeper reckons, covered in blood. Says they were attacked by footpads".
 
-The solider's nodded dumbly, and Jake could see that he would be having his work cut out for him. These guys looked like they shared a rather small brain between them and they clearly didn't like the fact that they had to be up before seventh bell; man in his day...
+Jake, motioned over to the inn in question, a moderate place on the waterfront. Nice enough for a artisan engraver and ward, sa their quarry claimed to be, but he most certainly wouldn't take Jessica there. It was just the kind of place that you would stay if you didn't want to be noticed. Not too many guards trying to keep order among ruffians and not too many night patrols by the city guard, trying to make the rich feel safe and sound.
 
-"Now remember, be courteous. We are trying to save a young girl from her kidnapper. Show everyone the picture, and ask specifically if they saw or heard anything three nights ago".
+"And it was definitely the night of the attack?", Marcus inquired.
 
-He quickly barked directions, sending a group to ask pedestrians, one to check the ground floor homes and some to check the second and third floor rooms. There were a few officers, and he sent them to check the inn's and pubs along the promenade, hoping that they wouldn't inspect the bottom of every bottle personally.
+"Yes. I am pretty sure these are the ones. The innkeeper says that the man, Derin Tomlin is the name he uses by the way, settled his account this morning. He must be fleeing today. But he was still at the inn when she left a two bells ago."
 
-Marcus tossed Jake his reins as the soldiers scattered about their duties and Jake stepped off the bench.
+Marcus thought deeply. 
 
-"And now just to hope you are right", Jake sighed, securing his foot in the left stirrup and throwing himself onto his gelding.
+"No. This guy isn't stupid. He knows that if we are watching him, settling his account would indicate his intentions." Marcus furrowed his brow, his horse twitching, responding to the anxiety of its master. Marcus spoke slowly. "He must be trying to force our hand. Meranis is approaching it's zenith. He wants us to attack when his Drinker is at her full power."
 
-"It would take quite a bit of foresight for anyone to make a decoy run after a serious fight like that. If our quarry is truly that brilliant in the face of shear panic, we have little hope of catching them". Marcus trotted his horse on down the board walk. "But more than likely he ran straight home, or to one of his safe houses. And someone knows something. I have already sent my most capable men to seek out all the doctors and back alley surgeons. If they seeked out help from the public, we will have them".
+Yes, that did seem logical Jake thought. This is what it must be like to battle true opponents. Trying to always think one step ahead of each other. But if their opponents were truly brilliant then surely they would be aware that Marcus would know what they were trying to do? So they must have made their move knowing that it would make Marcus wary of attacking. But to what end?
 
-Jake didn't suppose there was any point second guessing themselves. They had no clues aside from the blood trail which led from the alley in which the would-be assasins had fought their last stand. No ships had left that night, and none of the quatermasters on the docks had seen anyone matching their descriptions. Marcus' theory hinged on the concept that the Drinker would have truly exhausted herself on that night, when Meranis was at its Zenith.
+"We wait", Marcus announced. "Whatever their plan is, the fact is that they aren't going anywhere with Meranis up. They are going to wait for Meranis to fall, and then try and slip away in the crowds, to some pre-arranged exit strategy". 
 
-Any Planet Drinker became an unstoppable monster when their heavenly bodies were in conjunction. But it exacted a terrible toll, and if, as The Captain claimed, the Drinker had been knocked unconscious <i>while</i> holding Meranis they would not be going anywhere.
+Jake nodded solemly, trying to think of what they would need to do.
 
-There were a thousand things that could have happened since that event but their best chance was hoping that someone had seen an old man carrying a blood soaked girl.
+"And if they flee now?"
 
-"Right, well it seems that you have everything under control here Jake", Marcus said, turning his horse to face into the city.  "I am going to have to go and see a man about a dog, or more precisely, a dog bout a plan", he continued, laughing dryly at his own joke. 
-
-"Yes sir", Jake replied, a slight look of confusion on his face.
-
-"Just keep moving down the pier. Make sure you talk to everyone an make sure not too many soldiers get lost in the pubs. I will be back by midday".
-
-And with that Marcus kicked his horse into a trot, heading into the city. Jake's slipped into a trance, thinking about how much he wished to be back home already. But hey, be glad for what you have. At least he had been able to sleep next to his wife last night for the first time in months. Not that they had done much sleeping.
-
-Jake could feel the Meranis as it made it's orbit across the sky. Jake could have pointed directly at it despite the summer sun was still low in the morning sky washing night sky. Meranis was like a breeze blowing against his skin at all times, but it provided no cooling and by the time it was midday they would all be sweating by the bucket load.
-
-Jake kept his eyes out, if the Planet Drinker was anywhere within sight he would be able to feel her shadow as she unconciously absorbed the Planet's power. If she was pulling on the power directly he would be able to feel her presence even through stone.
-
-He held his breath and concentrated, feeling the wind with every fibre of his being. But he could see nothing and feel nothing. This would be a long day.
+"They won't. They are hoping that we will attack while we can identify her, thinking that they can slip by annonymously. If they do try to slip out with Meranis in conjunction, the target will be obvious and I will follow while you get backup. But they won't. Trust me."
 
 ---
 
+"It's time to go", Emlyn said rising to her feet. Her legs shook slighly as her anxiety swelled in her chest. If they were truly hunted as Orin suspected then they were taking a huge gamble. 
 
+But as Meranis started sinking below the horizon Emlyn and Orin prepared themselves for their escape. Orin had already destroyed all their non-essential equipment. They had slowly filled the fire with their ciphers and codes. All their bulky tools had been broken down and distributed in the back alleys of the surrounding neighbourhood and their extra clothes had been distributed to the vagrants. By the time any tracking dogs get their nose on the garments, they would be filled with the odours of the slum.
+
+All they had left was a small bag on each of their backs for their essential gear. Their belts held their weapons and anything that they couldn't do without, in the event that they had to drop their bags in a chase. Finally they had their emergency provisions strapped under their clothes, in the event that the worst would happen.
+
+As Meranis finally winked out, Emlyn nodded to Orin. 
+
+"You ready?" He inquired, a grave look on his face. Emlyn swallowed, and tried to speak, but her voice caught in her throat. She felt sick. If she opened her mouth she was afraid that she might spill her lunch. In the end she just nodded.
+
+"Lets go."
+
+---
+
+"Here they come" Jake said as the pair exited the front of inn. "Just as Meranis sets, just as you said. Marcus just nodded.
+
+They had eschewed their uniforms, instead taking the clothes of the surrounding crowds. This would take tact, alacrity and skill. And if even the smallest thing gave away their intentions, their quarry would flee. In any normal circumstances they would have been able to call on a battalion of guards to apprehend these terrorists. But according tot Marcus, The Captain had been very clear that this was to be absolutely secret. And the city watch wasn't known for it's discression.
+
+"Lets go" Marcus said, and slipped into the crowds, hiding in plain site as he tracked his victim. Jake followed him and swept a wide arc around the boardwalk, trying to keep his eye on the assasins, Marcus and his feet while attempting not too look suspiscous. His heart beat started to rise as he watched Marcus getting closer and closer. Marcus' eyes spun wildly in his head, seeking out every avenue of attack and every possible danger. 
+
+Jake turned in towards the assasins, trying to blend in with the crowd as much as possible. Inch by inch he got closer and closer, and finally he was behind them, walking along oblivious to world, watching out of the corner of his eye as Marcus converged on him from far right. Slipping effortlessly through the masses Marcus approached at a startling pace.
+
+And suddenly he was on them. Jakes heart raced as Marcus dived forward and threw his fist in a wide arc into her stomach. In a blur, time passed slowly and Jake saw the girl slouch over, crying out in pain as Marcus' full power came into contact with her. Suddenly guardian swept his hand to his belt and suddenly produced a knife. 
+
+In one smooth underarm motion he broguht the knife to bear on Marcus, but Jake's training had already kicked in and he found himself barreling forward, and before he was aware he had wrapped his arms around the would be assasin and tackled him into the dirt, the knife going sprawling into the dirt.
+
+As the world spun, Jake glimpsed Marcus take on the Planet Drinker. It wasn't much of a fight. At roughly treble her weight there was no contest. She sprawled on the ground crying out for help. Marcus aimed a large sweeping kick at her torso and she simply whimpered, unable to fight back.
+
+But Jake's opponent was not ready to go out so quickly. He bucked and kicked as Jake held onto him with all his strength. They rolled over and over and the man gesticulated wildly, hitting Jake's head into the ground repeatedly as Jake cursed and shouted. 
+
+Finally, after what felt like an age Jake finally found himself on top and threw the assasin into an head lock. At first he struggled wildly, but eventually he accepted the inevitable and he finally fell limp.
+
+A large crowd had formed around them and Jake could hear the city guard approaching, last to an incident as usual. He glanced at Marcus just in time to see him pull his finger out of the back of Drinkers throat as she threw up violently on the paving stones. With that Marcus threw a black sack over her head and began to bind her hands viscously behind her back and Jake followed suit with his prisoner.
+
+Once the bonds were secure Marcus raised his prisoner to her feet. He kicked through the girls lunch with his boot, but there was no Planet Well. But yo could never be too carefull.
+
+"WHAT IS GOING ON HERE?"
+
+A roar burst from the leader of the patrol, who's eyes fumed and sword swayed in hand eagerly hoping to spill someone's blood.
+
+"Just capturing two counterfeiters sir. On the King's Justice.", Marcus said, producing his official writ, inked in beautiful cursive script and signed by The Captain of the Guard himself.
+
+The lietentant's eyes dashed across the page, his face darkening as he slowly realized the unbridled power that the writ provided them. Finally he handed back the parchment sharply and saluted.
+
+"Excellent. Now may we borrow two of your horses please" Marcus said, smiling widely. The lietenant's face flashed to pure anger, but he pointed and led on and Marcus and Jake followed him, pulling their unwilling prisoners with them.
+
+As they Jake threw his prisoner over his horse, he heard the girls sobs beside him. A pang of sorrow went out from him for a second. Not for the pain that she had suffered, but for what she was about to suffer. 
 
 ---
 
