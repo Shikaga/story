@@ -1341,6 +1341,36 @@ Orin took the scroll, broke the red seal, noting thie Royal Seal of Kris that ad
 
 ---
 
+20.
+---
+
+The girl had finally stopped struggling by the time that they had carried her into the keep. She had fought and scratched and screamed, before Marcus finally gagged her with his own scarf and cursed her with every threat under the sun.
+
+They had left "Master Tomlin", in one of the holding cells, at the walls of the Keep, and instructed the guards that he was to be watched at all times, and that no one was to go near him. But they had been instructed to take the Drinker directly into the keep and to The Captain's private rooms. 
+
+None of the soldiers looked at them, and they half carried, half dragged the bedgraggled body of the hooded figure through the dark corridors. It was clear that these soldiers, did not talk about the daily attrocities they witnessed. 
+
+"Here you go", Marcus announced, throwing the body to the floor of The Captains appartment, and dusting off his hands. "Not one day back and I have bagged you your Planet Drinker."
+
+The Captain was stood up, clasping his hands in front of him, as they delivered their packed. A casual look was upon his face as he bent down and pulled off the hood.
+
+
+
+---
+
+Orin couldn't tell how long he had been lying in the dark. It felt like days, but he doubted that more than six bells had been struck since he had been captured. 
+
+Lying in the dark, time seemed to draw out like a blade. Every thought imaginable ran through his head. Every creak, and echo in the deep recesses of the his cell sounded like Emlyn's screams.
+
+Orin rolled over, and took a deep breath, trying to save his energy. While there was breath, there was hope, but no matter which way he looked at it, he couldn't remember being in such a tight spot. He had taken a gamble and he had lost. But that is why you always had more plans...
+
+Of course they had been watched. They should have left straight away, but Orin didn't want to risk Emlyn's health after a fight like that. But they had waited too long, and they had been tracked down. Now their salvation lay in Emlyn's hands.
+
+---
+
+
+
+
 Random stuff
 ---
 
