@@ -1281,6 +1281,66 @@ As they Jake threw his prisoner over his horse, he heard the girls sobs beside h
 
 ---
 
+They dumped her to the ground in a dank dark cell, illuminated only by flaming torches, set in cast iron brackets. Jake dragged her into the corner, and clamped manacles around each of her arms and legs. He checked and double checked the restraints before returning to the door.
+
+"Hey you", he shouted to one of the guards, who ran in and stood to attention.
+
+"You are going to sit stand by this door and watch this prisoner directly. Do not approach the prisoner. Do no take your eyes off the prisoner. If you rest your eyes or fall or asleep you might not wake up again."
+
+The soldier stared at the hooded creature bound in the corner, and gulped nervously.
+
+"I am going to position a soldier on the outside of the door. Check in with him regularly. If you see anything odd going on, report it."
+
+And with that Jake left the cell, locking the door behind him. 
+
+"She's secure", he informed Marcus, who was leaning nonchalantly, in the corridor. 
+
+"It's hard to believe that she is the biggest threat to the realm isn't it?", Marcus said, as he made his way out of the holding cells.
+
+"Yeah, I have never fought a Drinker so young. Seems really odd that any kingdom would deploy her without backup."
+
+"Well, we will have all the answers we need soon enough. I have sent a runner to the Keep, to confirm the succesful pickup." 
+
+Marcus paused, as he was let throguh the exit doors of the holding cells, returning to the well lit courtyard of the Scryers Hold. 
+
+"We just need to go through their bags, fill out the paper-work, and we might even be able to get home become sundown", Marcus continued. 
+
+---
+
+Insert Orin Monologue here...
+
+---
+
+Marcus and Jake looked up from the confiscated bags, their sheets expertly filled out listing the contents in all their startling !!boringnes!!. There was a commotion outside, and they both placed their pens back in their holders, and collected their papers together.
+
+It was clear that they had picked up some, spies. Single-use cipher sheets and detailed maps were stored away carefully in leather binders. Those would be of some use to the code breakers up at the Keep, but nothing that would give leverage to The Scryers.
+
+But it was, the things that were missing that were truly interesting. There was no Planet Well, which seemed odd as the dosier they had received clearly stated theat they had access to one. It wasn't uncommon for a Drinker to swallow their Well if they expected to be captured, but Marcus had been sure to expel an potential threat during the arrest. No Plane Well had been in her stomach or on her person.
+
+There also didn't seem to be any escape paraphinalia. No tickets, or contracts, or writs-of-passage. A little odd, but they may have hidden them somewhere outside of the city, just in case. The really prepared always had a backup plan.
+
+None of this mattered to Marcus. They had them safely captured now, and once the Confessors arrived they would find out anything they wanted to know. It would just be a matter of time.
+
+Marcus led them into the courtyard, where a loud argument was going on between their guards and a group of about eight horse men at the gate. 
+
+"What's going on here?" Marcus exclaimed, approaching the would be trespassers.
+
+"They say they are here to pick up the prisoner you arrested today", the gatekeeper explained. "I told them they cannot enter without authorisation."
+
+"We have the highest authorisation", one of the Horsemen declared, his horse twitching with the nervousness of the scene."
+
+"Of course", Marcus said reassuringly, trying to calm everyone down. "We just have to be careful. It is nearly sundown and we don't like strangers poking around the Scryers Hold after nightfall."
+
+"We ain't strangers.", the horseman replied, holding a scroll in his outstretched hand.
+
+Orin took the scroll, broke the red seal, noting thie Royal Seal of Kris that adorned it. Placing his spectacles to his eyes darted across the page.
+
+"Of course not. Please, enter. My men will take care of your horses", and Marcus gestured placatingly towards the holding cells. "Your prisoner is right this way. Let me just fill out the paperwork."
+
+"Be quick about it. As you say, it is nearly nightfall. We want to be on our way as soon as possible."
+
+---
+
 Random stuff
 ---
 
