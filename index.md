@@ -1279,7 +1279,11 @@ The lietentant's eyes dashed across the page, his face darkening as he slowly re
 
 As they Jake threw his prisoner over his horse, he heard the girls sobs beside him. A pang of sorrow went out from him for a second. Not for the pain that she had suffered, but for what she was about to suffer. 
 
+<<<<<<< HEAD
 20.
+=======
+19.
+>>>>>>> More crap
 ---
 
 The girl had finally stopped struggling by the time that they had carried her into the keep. She had fought and scratched and screamed, before Marcus finally gagged her with his own scarf and cursed her with every threat under the sun.
@@ -1344,11 +1348,58 @@ Marcus led them into the courtyard, where a loud argument was going on between t
 
 "We ain't strangers.", the horseman replied, holding a scroll in his outstretched hand.
 
-Orin took the scroll, broke the red seal, noting thie Royal Seal of Kris that adorned it. Placing his spectacles to his eyes darted across the page.
+Marcus took the scroll, broke the red seal, noting thie Royal Seal of Kris that adorned it. Placing his spectacles to his eyes darted across the page.
 
 "Of course not. Please, enter. My men will take care of your horses", and Marcus gestured placatingly towards the holding cells. "Your prisoner is right this way. Let me just fill out the paperwork."
 
 "Be quick about it. As you say, it is nearly nightfall. We want to be on our way as soon as possible."
+
+"Follow me", Marcus invited, and stepped quickly in the directions of the cells. 
+
+"I assume that you know the danger that you guys are dealing with?", Marcus enquired?
+
+"We know", one of the figures confirmed.
+
+"Meranis will be up in one hour", Jake replied. "If you do not have this prisoner in your deepest darkest dungeon by then, there is no power in the world that will be able to save you".
+
+"We got it", another of the strangers replied.
+
+The door of the holding cells swung open as Marcus approached, the doorman nodding his head in respect. The low sun, cast long shadows on the floor as they marched down the brick corridor. 
+
+"Please take a seat", Marcus offered as they reache the room where they had just been filling out their ledgers. "Let us just fill out the paperwork. Jake will accompany your men to get the prisoner", and Jake nodded and headed down into the darkness, taking their guests with them. 
+
+The leader, sat down and cracked his knuckles ominously, while Marcus reached for his pen.
+
+"Not, every day that we see a member of The Unbreakable around town. Too see eight of them in one night, I should consider myself lucky", Marcus said lightly, as he filled out the transfer forms.
+
+"I have to say, I don't see why this Drinker is any of your concern, especially, when I got explicit orders from the Captain of the Guard himself to bring her in myself". The Unbreakable's face remained emotionless, almost bored.
+
+"But if you are on the Kings personal business, then I suppose it is none of my concern". Still nothing.
+
+"Please sign here", Marcus said finally, passing the parchment over the table to the man's outstreched hand. The man took the parchment and quickly and elegantly signed his name. "Seven Hundred and Sixty Eight", spelled out in flowing in cursive script.
+
+"Wonderful", Marcus said, putting the form into his leather folder. 
+
+They sat in silence for a moment, until the other Unbreakables finally returned, the prisoner held between them, more walkign than limping, with Jake bringing up the rear. 
+
+"Take her to the keep immediately", Seven Sixty Eight ordered, and four of his men exited, taking their prisoner with them. Four of the Unbreakable remained.
+
+"Now, I believe that you ahve another prisoner, who was in collusion with the Planet Drinker."
+
+"That's correct, a certain Master Tomlin, who we believe was her handler. From the documents that we gathered, he seems to be a Verrisian spy".
+
+"Documents?", the lead Unbreakable asked?
+
+"All listed here", Marcus replied, handing the manifest over. The Unbreakable's eyes darted over the page, a quizzical look on his face
+
+"Nothing, definitive on this list", he finally stated. "I want to tie up the loose ends tonight. I want to interrogate him".
+
+"He is my prisoner. Unless you have another order...", Marcus replied. The leader just stared at him, his cool eyes burrowing into Marcus' skin. "But of course, I will provide every convenience to someone on the King's business. This way please"
+
+20.
+---
+
+
 
 ---
 
