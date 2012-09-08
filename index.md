@@ -1313,7 +1313,7 @@ Marcus paused, as he was let throguh the exit doors of the holding cells, return
 
 ---
 
-Orin couldn't tell how long he had been lying in the dark. It felt like days, but he doubted that more than six bells had been struck since he had been captured. 
+Orin couldn't tell how much time had past. It felt like days, but he doubted that more than six bells had been struck since he had been captured. 
 
 Lying in the dark, time seemed to draw out like a blade. Every thought imaginable ran through his head. Every creak, and echo in the deep recesses of the his cell sounded like Emlyn's screams.
 
@@ -1395,6 +1395,79 @@ They sat in silence for a moment, until the other Unbreakables finally returned,
 
 21.
 ---
+
+Orin felt the two men enter the cell. He could feel the heat of their flamign torches on his skin, but the bag on his head kept him in pitch darkness. He sized them up as they lifted him up by the arms. These guys meant business. Strength radiated from them, and they clearly each had about a foot on him. Without his tools he would be hard-pressed to take on one of them. He would have to wait for his moment.
+
+They half dragged him through the unknown darkness, before roughly pushing him into a chair. He felt restraints being thrown around his arms and then his legs roughly, before finally  his hood was ripped off. His recoiled where he sat in response to the sudden blinding light. He blinked, staring dumbly as figures began to take form.
+
+"Hello, Master Tomlin". The voice was calm and collected, without a hint of menace, making it truly terrifying. The man speakin he hadn't seen before, but he was sat next to the the man who had assaulted them in market. The man who had pinned him to the ground was leaning against the wall.
+
+"What's going on? Who are you people?", Orin replied adopting his Master Tomlin persona, with terror in his voice. There was no way that would fool them, but if you were about to be tortured, it was much easier to continue your protestations of mistaken identity. If he held out long enough he might even begin to believe it.
+
+"I think you will find that this will be a lot easier if you allow us to ask the questions", the man replied.
+
+"I don't know what you think I have done, but I swear I didn't do it! I am a good man, not some kind of cutthro..", Orin said, slightly hysterical know, before his head was suddenly thrust forward into the table by an unseen hand behind him.
+
+"As I was saying, this will be easier if you just answer my questions. Do you understand?" the man continued. Orin collected himself, before nodding shortly, his head aching and still spinning slightly.
+
+"Excellent. What is your name?"
+
+"Tomlin. Derin Tomlin."
+
+"Come now, we both know that's not true. Now, we don't have an inquisitor here, or any specialised instruments, but I am sure that I can find a way to make you more honest". 
+
+His voice remained cool and collected. He could have been talking about how beautiful the weather was, rather than threatening Orin with unimaginable compliance techniques. Orin had to admit, he was in a pretty tight spot. His eyes roamed the cell, looking for something, anything that might give him an idea of what to do.
+
+"Where is my niece?", Orin asked pleadingly. "Is she okay?"
+
+"Oh, I am afraid that your niece isn't with us anymore. But I hope for her sake she is a lot better at answering questions than her uncle. Otherwise things are going to go very badly for her".
+
+Orin's face fell, a look of complete hopelesness finally taking over.
+
+"So, shall we try again. What is your name?"
+
+Orin just started crying, and once again he felt his head violently wrenched into the table in front of him.
+
+"What is your name?"
+
+Bam.
+
+"What is your name?"
+
+Bam.
+
+"What is your name?"
+
+Bam.
+
+22.
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
