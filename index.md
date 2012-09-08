@@ -1443,7 +1443,33 @@ Bam.
 22.
 ---
 
+Orin spat blood on the table. The beating had stopped, so he guessed that he should look on the bright side.
 
+On reflection, he doubted that these guys really wanted answers at all. They just seemed to enjoy watching him suffer, which he guessed was fair enough. If you enjoyed inflicting pain on others then at least get paid for doing what you loved. But they clearly, didn't really expect him to give up any real answers.
+
+The knock at the door which had interrupted their conversation was followed by anyother dark robed man entering the room. His inquisitor mumbled some threat about "better habing better answers when he returned", and then followed his acquaintance out of the cell.
+
+"You know, we are eventually going to have all the information that we need. You are only hurting yourself."
+
+The man that had arrested them was talking now. He had sat impassionately throughout his interrogation, a look of disgust on his face.
+
+"I keep telling you, you have the wrong man.", Orin replied.
+
+"Of course." he acknowledged. "I have to admit, I don't like my companions methods. I find them very quite primative really. As you can imagine, I mostly deal with Planet Drinkers. Given enough time, they would sell out their own mothers just be allowed to bask in a small sliver of Planet Light."
+
+"I am sure you care a great deal for your niece.", he continued. "What was her name again? Rosie?". Orin simply sighed. "Well, I am sure you don't want her to suffer what you have suffered. Why not just come clean about everything? Give us no reason to hurt her?"
+
+"She hasn't done anything." Orin moaned. "Whatever sins I may have committed, she is blameless."
+
+"The power is in your hands." his captor replied.
+
+The two men suddenly re-entered. 
+
+"Okay, we are done here." the interrogator said. "Thank you for your time."
+
+The interrogator crossed to the side, and stuck out his hand and captor shook his hand. As the knife sunk into his captor's back, the interrogator declared. "You have been sentenced to summary execution for conspiring in the assassintation of the king!"
+
+---
 
 
 
