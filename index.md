@@ -1279,11 +1279,8 @@ The lietentant's eyes dashed across the page, his face darkening as he slowly re
 
 As they Jake threw his prisoner over his horse, he heard the girls sobs beside him. A pang of sorrow went out from him for a second. Not for the pain that she had suffered, but for what she was about to suffer. 
 
-<<<<<<< HEAD
+
 20.
-=======
-19.
->>>>>>> More crap
 ---
 
 The girl had finally stopped struggling by the time that they had carried her into the keep. She had fought and scratched and screamed, before Marcus finally gagged her with his own scarf and cursed her with every threat under the sun.
@@ -1396,7 +1393,7 @@ They sat in silence for a moment, until the other Unbreakables finally returned,
 
 "He is my prisoner. Unless you have another order...", Marcus replied. The leader just stared at him, his cool eyes burrowing into Marcus' skin. "But of course, I will provide every convenience to someone on the King's business. This way please"
 
-20.
+21.
 ---
 
 
