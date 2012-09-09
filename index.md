@@ -1443,6 +1443,14 @@ Bam.
 22.
 ---
 
+The Captain of the Guard watched as the four men rode into the courtyard of the Royal Keep. He leant in the shadows, watching from afar as the men pulled up their horses and transfered their package down, to the men awaiting them who dragged the prisoners away.
+
+The men had a quick discussion, their low whispers echoing through the night sky. It was time to tie up the loose ends. There was a certain poetry to it really. In one blow, he would take out Seargent Marcus, who had so often opposed him, he would replace their weak king and precipitate the requirements for war against Verris all for the good of the realm.
+
+As the horsemen turned around and charged back out the gates to belay his orders, The Captain fo the Guard turned to his own chambers. Now he needed only to wait for his palns to come to fruition.
+
+---
+
 Orin spat blood on the table. The beating had stopped, so he guessed that he should look on the bright side.
 
 On reflection, he doubted that these guys really wanted answers at all. They just seemed to enjoy watching him suffer, which he guessed was fair enough. If you enjoyed inflicting pain on others then at least get paid for doing what you loved. But they clearly, didn't really expect him to give up any real answers.
@@ -1471,11 +1479,34 @@ The interrogator crossed to the side, and stuck out his hand and captor shook hi
 
 ---
 
+Sitting down at the table, the Captain loomed and slowly cracked his knuckles trying to be as imposing as he could. "So, we are about to have a little chat", The Captain said, nodding to one of the guards. The grabbed and the prisoners head yanked his head off the table roughly.
 
+A sixteen year old girl, hair matted to her face with sweat, stared into The Captains head.
 
+The Captain's heart skipped a beat. He stared in shock at her face, tracing every line of her features. True, it had been dark, and fast and violent that night. But there was no getting away from it. This was not the girl that he had fought.
 
+She looked similar, certainly. She was the same age, she had the same hair. But this was a different girl.
 
+His mind reeled. A thousand different thoughts fought for supremacy in his mind. Who was this girl? Was she connected to the spies? Where was the Planet Drinker?  Should he continue the interrogation? Could anyone else tell he was surprised? What should he do now?
 
+---
+
+Jake strained as he was tackled into the wall by three cloaked Unbreakables. Marcus' scream echoed off the walls of the cell, as the knife was twisted in his back.
+
+"For your involvement in the assasination of the king, you face execution", Seven Hundred and Sixty Eight stated.
+
+Jake tried to kick off the wall, but only succeeded in crashing into the floor painfully.
+
+"So, this is how it ends?", Marcus asked, his voice catching in his throat as he forced the words out slowly.
+
+"I am afraid so.", the executioner replied. "Don't worry, it will all be over soon."
+
+But Marcus wasn't looking at him anymore. His eyes were locked on the door to their cell. And Jake felt it, the cold chill radiating from the other side of the door that could only mean one thing. 
+
+The door splintered open with thundering crash
+
+23.
+---
 
 
 
