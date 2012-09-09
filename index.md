@@ -1508,7 +1508,74 @@ The door splintered open with thundering crash
 23.
 ---
 
+Emlyn smashed through the door, leaving the trail of unconcious guards behind her. She was too deep to feel Meranis anymore, but her Planet Well was still full. 
 
+She entered to the sight of shocked faces, looking at her in complete bewilderemnt. She seemed to have interrupted some kind of scuffle betweem the jailers. In the corner four were grappling on the ground, the ones at the table seemed to be in the middle of a knife fight, and manacled to a chair sat Orin, blood streaming over his face, but clearly, still lucid.
+
+Emlyn drew on her Well, and kicked her self into the air, flying directly at the men at the table. She evaluated her targets. The man who had arrested "her", was standing with a knife in his back, and posed no threat. But the man opposite him, was radiating danger, and was already moving to defend himself. She threw her fist out and connected with his face perfectly.
+
+The man went out like a light, rolling over head over heels backwards and Emlyn skittered onto the floor, regaining her balance. The men who had been scrabbling in the corner turned and started walking towards her, hidden foot long blades being pulled from within their pitch black robes. The man who had been grappleing with them dashed over to his wounded companion at the table.
+
+"Watch out!", Orin yelled, straining at his chair as he instinctively tried to assist her. Emlyn spun around throwing out a high kick, just in to time to connect with another soldier she hadn't noticed before. The man grunted as he hit the wall behind him, but the distraction had worked and the three men threw themselves on Emlyn, blades flying at her viscously.
+
+Emlyn threw herself to the side, rolling away from her foes as the swords clattered against the tiles where she had just been. Wasting no time, Emlyn jumped up the wall and grabbed an iron bracket on the wall. Her hands burned as she heaved pulling the bracket from the hard stone and projected the burning coals at her attackers.
+
+They threw up their arms reflexively, but the burning hot coal dust fileld the air, and they screamed as it hit eyes and skin. They choked for air, and their screams resounded in the small room as the embers filled their lungs. Emlyn took a deep breath and ran at them and after a quick succession of blows the men lay on the floor.
+
+Emlyn breathed deeply as she surveyed the destruction that surrounded her. All the cloaked men lay incapacitated on cold flagstones, but the two uniformed men that had arrested Orin and her body double remained, cowering by the table. The younger man, had pulled his sword, but clearly had no interest in using it.
+
+"Leave them Rosie", Orins voice rang in the air, bring her back to reality after her adrenaline and Meranis fueled rage. "Release me", he then said, directing his words to the two uniformed men.
+
+The older man sat for a second, before nodding to his companion, who pulled a ring of keys off one of the fallen guards and started to remove Orin's restraints. 
+
+Orin rubbed his wrists as the manacles fell away. "I think it is time for us to make our escape. Again", he stated, a tired look on his face. "But I think the same goes for the two of you doesn't it?"
+
+"We can fight our way out" Emlyn stated, eyeing the two uniformed men with suspiscion. "I wasn't spotted. And once we get back to the courtyard Meranis will guide our way".
+
+Orin continued to look at his captors. "It seems clear that your country has turned on you. I suspect that by now that your king has been assasinated, and you will be held accountable." You could see the mechanation on their faces as they ran the evidence through their minds. They didn't want it to be true, but there was no other evidence. Even the Unbreakables wouldn't be allowed to kill a Skryer in the Skryers Hold unless they had evidence of treason.
+
+And as Marcus thought about it, all the individual pieces seemed to fall into place. It really was obvious. The clandestine meetings, haing to bring in the Drinker by themselves. They had been set up since they entered the city. Marcus didn't want it to be true, but that didn't mean it wasn't. The only question was, where did he go from here? Fight or flight?
+
+"Sir. My family. Do you think...?", the younger man said, clasping his hands on his head.
+
+"No, your family is fine, trust me", the elder man said. "At least, as long as you stay away from them."
+
+A pause and then he continued. "We flee. Follow us."
+
+"Our bags", Orin replied as the man stood up from his chair with a grim face as he fought his internal agony. "I can give you something for the wound that will slow the bleeding and numb the pain."
+
+"This way. I am Marcus by the way. This is Jake." the elder man said.
+
+"Derin Tomlin, in case you didn't hear me the first fifty times", Orin said with a wicked smile.
+
+THE END?
+
+Epilogue.
+---
+
+"Why did you let them go?"
+
+Orin stared out at the sunrise, growing along the dark blue horizon of the ocean. He leant against the wooden railing, taking in the salty air.
+
+"They were no use to us in Verris", Orin replied. "We would have been forced to imprison them. And then we would be hamstrung. Whereas, outside, who knows what use they might be.
+
+Emlyn nodded slowly. "You will have to choose your words wisely when explaining this to the comittee".
+
+Orin sighed deeply. "I suspect that there are going to be a lot of difficult questions when we get home Emlyn. And I don't think we are going to like them."
+
+"How can we be blamed for what happened?", Emlyn asked incredulously.
+
+"Someone has to be. It can't be no one's fault." Orin said sadly. "But lest not worry about that now. There will be plenty of time for that in the future."
+
+"For now, let us just be thankful", he continued.  "We could both very easily be dead". 
+
+"Maybe you old man. I don't die so easily". Orin smiled silenty, and put his arm around her, clutching her close. "You know. I don't think we have ever simply watched a sunset together. No training, no objectives. Just stopping to enjoy its beauty and its warmth"
+
+"Is this what it is like to watch Meranis rise?", Orin asked neutrally.
+
+"No. She is cold, and sharp as steel. I need her with every fibre of my being. But I couldn't share her with you. She holds me jelously to her."
+
+Emlyn stuck her arms around Orin, and he hugged her tighter as they finally headed for home.
 
 
 
