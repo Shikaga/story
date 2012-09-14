@@ -83,6 +83,24 @@ A sixteen year old girl, hair matted to her face with sweat, stared into The Cap
 
  Six Months Earlier
 
+Emlyn wakes up... Hmmm... Afer a bad dream? Perhaps a portent of something to come? Maybe she is blessed with foresight.. Anyway, either way she can't quite remember. But she is heading into the port, onboard a ship...
+
+Orin and Emlyn find their way to the Royal Keep, where they are working for some minor noble doing translations, scribing, perhaps managing books etc. 
+
+At some point here, Emlyn is on a errand for Orin, or perhaps just dinner in the servants quarters, anyway she meets Robert, who is totally different character now, anyway they strike up a rapport, which will continue throughout the book.
+
+At this point we start seeing information from he unbreakables point of view. He is talking to the prince about why they need to depose the king. I want something that is actually logical, to the point where you almost side with them. Also this is a good juncture to address why they are having issues with the Scryers Guild. Some kind of interpolitical thing. Specifically, it would be of great benefit for them to get rid of Marcus
+
+After forshadowing the problem with the Scryers, we cut to Marcus doing his thing far from home.
+
+Orin tracks down some clues about what happened to the previous spy. they investigate, find one of his safehouses and find some encrypted documents. This is one of the first big reveals from the plot, and gives our characters some motivation on where to go from here.
+
+Some slowdown comes after this, just them living out their lives, some time to work with Emlyn and Roberts relationship. Orin disapproving, fatherly like, typical stuff. When suddenly...
+
+Plot event! Emlyn discovers something critical, something that they had been missing the whole time. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
+
+
+
 11.
 ---
 
