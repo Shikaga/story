@@ -89,7 +89,9 @@ Orin and Emlyn find their way to the Royal Keep, where they are working for some
 
 At some point here, Emlyn is on a errand for Orin, or perhaps just dinner in the servants quarters, anyway she meets Robert, who is totally different character now, anyway they strike up a rapport, which will continue throughout the book.
 
-At this point we start seeing information from he unbreakables point of view. He is talking to the prince about why they need to depose the king. I want something that is actually logical, to the point where you almost side with them. Also this is a good juncture to address why they are having issues with the Scryers Guild. Some kind of interpolitical thing. Specifically, it would be of great benefit for them to get rid of Marcus
+We also meet the Princess at this point, who is cool. We like her, she has her own stuff going on. 
+
+At this point we start seeing information from he unbreakables point of view. They talk about actually needing to assasinate the king, because he refuses to go to war with Verris, they have been allies for a long time now. But he is wrong, something must be one. Also this is a good juncture to address why they are having issues with the Scryers Guild. Some kind of interpolitical thing. Specifically, it would be of great benefit for them to get rid of Marcus
 
 After forshadowing the problem with the Scryers, we cut to Marcus doing his thing far from home.
 
@@ -97,9 +99,9 @@ Orin tracks down some clues about what happened to the previous spy. they invest
 
 Some slowdown comes after this, just them living out their lives, some time to work with Emlyn and Roberts relationship. Orin disapproving, fatherly like, typical stuff. When suddenly...
 
-Plot event! Emlyn discovers something critical, something that they had been missing the whole time. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
+Plot event! Emlyn discovers that it was actually a Verrisian the whoel time who was trying to precipitate war. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
 
-
+Turns out, it was at the Princesses orders that her father was to be killed. She was doing it because, the danger that Verris posed was too great.
 
 11.
 ---
