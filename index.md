@@ -1008,7 +1008,7 @@ He lived in a good part of Rens. Not the residence of the exceptionally rich, bu
 
 But for now, he was content. He tied his horse to the post by the water trough and he took the final few steps towards his home.
 
-Removing his hat, he stepped through the wide open door, eyes blinking, adjusting from the sun outside to the relative gloom inside. His wife Tracy looked up with a quizzical expression from where she was sat reading at the kitchen table, before launching out of her chair in a maniacal dash towards him.
+Removing his hat, he stepped through the wide open door, eyes blinking, adjusting from the sun outside to the relative gloom inside. His wife Jessica looked up with a quizzical expression from where she was sat reading at the kitchen table, before launching out of her chair in a maniacal dash towards him.
 
 "My love!" she screamed, jumping into his arms and wrapping her legs around his waist. Bracing himself he caught her, engulfing her with his arms, his hat still in hand while she found his lips with hers. He lvoed how passionate Jessica was, which only became more intense after his long excursions.
 
@@ -1115,11 +1115,11 @@ The Captain gave a dismissive gesture and Marcus stood up, saluted again and lef
 
 ---
 
-He stood on the corner of a dark street watching the dispicable world slowly choke itself to death. He watched as footpads prowled the corners, the hoares plied their trade to the foul sailors and the lone rich men rode through, oblivious, in their carriages. 
+He stood on the corner of a dark street watching the dispicable world slowly choke itself to death. He watched as footpads prowled the corners, the whores plied their trade to the foul sailors and the lone rich men rode through, oblivious, in their carriages. 
 
 Marcus awaited his contact. It was time to find out what was really going on this city. Something didn't add up. If someone truly wanted the King dead he would be dead already. No matter what kind of security you had, you could not defeat a determined Planet Drinker assasin. But why just send a single drinker? And a young inexperienced girl at that. Not that Colonel Hennis would ever underestimate a Drinker for being a girl; once you had the power of a Planet inside you, you were more animal than man.
 
-But still, if you were attempting to kill The King, you would send a team. Four, five Planet Drinkers. A huge investment, few countries could boast that many Planet Drinkers. But to send just one Drinker and an old man made no sense. Verris was powerful, if they were truly behind this they would have got the job done. Something was wrong, and hopefully his contact would no why.
+But still, if you were attempting to kill The King, you would send a team. Four, five Planet Drinkers. A huge investment, few countries could boast that many Planet Drinkers. But to send just one Drinker and an old man made no sense. Verris was powerful, if they were truly behind this they would have got the job done. Something was wrong, and hopefully his contact would know why.
 
 In shadows across the street a carriage pulled up. With the curtains drawn the passenger was hidden, along with his dark passenger deep inside of him. There were unspeakable delights to be had by those with power. Sick pleasures and ravenous appetites, satiated by dining upon the desperate. Marcus could hear mumbles of the footman offering good money for a few hours work, hey you might even enjoy it. She would never be seen again. A long finger pointed out at a young beggar girl, barely an adolescent, cowering behind her friends. She shook her head, backing into the wall behind her but the clink of coin could clearly be heard, and her companions jostled her pushing her forward, towards her certain doom. She started to shake, but there would be no point crying now, no one would listen. 
 
