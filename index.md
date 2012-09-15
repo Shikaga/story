@@ -79,11 +79,26 @@ Sitting down at the table, the Captain loomed and slowly cracked his knuckles tr
 A sixteen year old girl, hair matted to her face with sweat, stared into The Captains head.
 
 1.
-----
+---
 
  Six Months Earlier
 
+"Come on Emlyn".
+
+THe cry rang out clearly through the bright courtyard, as Emlyn hung tightly to the wall, trying not to look down at the flagstones that lay three stories below her.
+
+She could hear, laughter beginning to build from those watching from the ground below. She wanted to everything to be over, to be anywhere but here. But there were only two ways to go. Down, towards those mocking her far below, or upwards, where Orin's outstretched hand was just out of reach.
+
+Emlyn thought that she could bear the ridicule of her peers, but the thought that of disappointing Orin she could not. Not that he would say anything, just tell her that she could try again, that no other ten ear old could achieve what she was expected to achieve.
+
+
+
 Emlyn wakes up... Hmmm... Afer a bad dream? Perhaps a portent of something to come? Maybe she is blessed with foresight.. Anyway, either way she can't quite remember. But she is heading into the port, onboard a ship...
+
+#.
+---
+
+Emlyn was roused from her deep sleep by a Orin's hand shaking her gently.
 
 Orin and Emlyn find their way to the Royal Keep, where they are working for some minor noble doing translations, scribing, perhaps managing books etc. 
 
