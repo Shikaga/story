@@ -85,11 +85,19 @@ A sixteen year old girl, hair matted to her face with sweat, stared into The Cap
 
 "Come on Emlyn".
 
-THe cry rang out clearly through the bright courtyard, as Emlyn hung tightly to the wall, trying not to look down at the flagstones that lay three stories below her.
+The cry rang out clearly through the bright courtyard, as Emlyn hung tightly to the wall, trying not to look down at the flagstones that lay three stories below her.
 
-She could hear, laughter beginning to build from those watching from the ground below. She wanted to everything to be over, to be anywhere but here. But there were only two ways to go. Down, towards those mocking her far below, or upwards, where Orin's outstretched hand was just out of reach.
+She could hear laughter beginning to build from those watching from the ground below. She wanted to everything to be over, to be anywhere but here. But she only had two choices. Downards, towards those mocking her far below, or upwards, where Orin's outstretched hand was just out of reach.
 
-Emlyn thought that she could bear the ridicule of her peers, but the thought that of disappointing Orin she could not. Not that he would say anything, just tell her that she could try again, that no other ten ear old could achieve what she was expected to achieve.
+Emlyn thought that she could bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything disparaging to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
+
+But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones. Her legs followed her, and she let her body take over as she resumed her climb. She felt the rope around her once again begin to taughten around her waist as she was belayed from the ground.
+
+Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretche out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
+
+And as she once again stretched out hand for a hold, she felt Orin hand wrap around her arm, and she was pulled onto the roof in one smooth motion. Emlyn could faintly hear applause from her peers far below, but she was concentrated on Orin's voice.
+
+"That wasn't so hard was it?", he asked, trying and failing to hide the huge grin on his face. For a master spy, something about Emlyn totally prevented Orin form being able to hide his emotions.
 
 
 
