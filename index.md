@@ -2,6 +2,8 @@
 layout: main
 ---
 
+
+
 Prologue
 ---
 The usual quiet and serenity of the palace had given way to the anxiety and fear that always accompanied uncertainty. The bells rang out loudly, signalling an attack, but there were no enemy soldiers, no conquering armies. 
