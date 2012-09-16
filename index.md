@@ -1,9 +1,3 @@
----
-layout: main
----
-
-
-
 Prologue
 ---
 
