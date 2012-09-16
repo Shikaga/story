@@ -105,15 +105,41 @@ Emlyn just stared at him as she tried to catch her breath. Her hands went to her
 
 "What?", she enquired, but the world started list beneath her, her feet slipping as the roof rolled beneath her. She cruched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happenign around him
 
-"Help me!", Emlyn screamed throwing her hand out to Orin, but her words caught in her throat and no sound came out. Orin now seemed completely oblivious to her very existance, his complete attention fixed in a one thousand yard stare into oblivion
+"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin now seemed completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into oblivion
 
-As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing at the great beyond.
+As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing into the great beyond.
 
-The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to burn in the searing heat.
+The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to singe in the searing heat.
 
-The screams of thousand rose up above the crackling furnace, as soldier's warcrys resounded through the air, 
+The screams of thousands rose up above the crackling furnace, as soldier's warcrys mixed with their screams, resounding through the air as they struck at each other brutally. 
 
+"It's time to wake up", Orin repeated, his dead eyes surveying the horror with calm acceptance.
 
+Emlyn tried to move, to scream, to strike out at the pain and suffering that was engulfing her. The heat rose, and she tried to shield her face, and she felt her tears hiss as they evaporated off her face in the searing heat. The fire had risen to a deafening roar, and the smoke stung her eyes, blinding her.
+
+And just as Emlyn had given up all hope, Orin's hand flew through the fire, and caught Emlyn's shoulder, and caught her, centring her in the malestrom.
+
+"WAKE UP!"
+
+---
+
+Emlyn sat bolt upright in her bed, her arms scrabbling wildly, looking for purchase. 
+
+"Woah", Orin yelled as she locked onto his arm, her fingers forming a vice-like grip upon his forearm. "Calm down, Rosie."
+
+Emlyn's shift was drenched in sweat, and she could feel the knots in her back from her spasms. She wiped her hair away from where it stuck to her face, and took a few calm breaths.
+
+"Sorry", Emlyn replied. "Just a bad dream". Orinn put the back of his hand to her head, and looking at her with a  small frown on his face.
+
+"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well get dressed, and meet me on deck", he ordered.
+
+As Orin departed Emlyn swung her legs off her bunk, touching the cold hard wood of the floor. The ship rocked lightly in the calm waves, and Emlyn crossed carefully to her trunk.
+
+The cabin was dark, illuminated only by the small lantern, and the dull purple halo of the first light of day, peeking through the porthole.
+
+Emlyn strained her eyes as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left her cabin.
+
+---
 
 Emlyn wakes up... Hmmm... Afer a bad dream? Perhaps a portent of something to come? Maybe she is blessed with foresight.. Anyway, either way she can't quite remember. But she is heading into the port, onboard a ship...
 
