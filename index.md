@@ -93,11 +93,25 @@ Emlyn thought that she could bear the ridicule of her peers, but the thought of 
 
 But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones. Her legs followed her, and she let her body take over as she resumed her climb. She felt the rope around her once again begin to taughten around her waist as she was belayed from the ground.
 
-Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretche out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
+Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretched them out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
 
-And as she once again stretched out hand for a hold, she felt Orin hand wrap around her arm, and she was pulled onto the roof in one smooth motion. Emlyn could faintly hear applause from her peers far below, but she was concentrated on Orin's voice.
+And as she once again stretched out hand for a hold, she felt Orin wrapping his fingers around her forearm, and she was pulled onto the roof in one smooth motion. Emlyn could faintly hear applause from her peers far below.
 
-"That wasn't so hard was it?", he asked, trying and failing to hide the huge grin on his face. For a master spy, something about Emlyn totally prevented Orin form being able to hide his emotions.
+"That wasn't so hard was it?", Orin asked, trying and failing to hide the huge grin on his face. For a master spy, Orin never did seem to be able to hide his emotions around Emlyn.   
+
+Emlyn just stared at him as she tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, and it dslowly descended to take its next victim.
+
+"Time to get up Emlyn", Orin said, as she took a step forward, heading for the stairs.
+
+"What?", she enquired, but the world started list beneath her, her feet slipping as the roof rolled beneath her. She cruched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happenign around him
+
+"Help me!", Emlyn screamed throwing her hand out to Orin, but her words caught in her throat and no sound came out. Orin now seemed completely oblivious to her very existance, his complete attention fixed in a one thousand yard stare into oblivion
+
+As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing at the great beyond.
+
+The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to burn in the searing heat.
+
+The screams of thousand rose up above the crackling furnace, as soldier's warcrys resounded through the air, 
 
 
 
