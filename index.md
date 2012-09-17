@@ -136,7 +136,7 @@ Emlyn's shift was drenched in sweat, and she could feel the knots in her back fr
 
 "Sorry", Emlyn replied. "Just a bad dream". Orinn put the back of his hand to her head, and looking at her with a  small frown on his face.
 
-"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well it'll be dawn in a few minutes.  Get dressed, and meet me on deck", he ordered.
+"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well it'll be dawn in a few minutes.  Get dressed and meet me on deck", he ordered.
 
 As Orin departed Emlyn swung her legs off her bunk, touching the cold hard wood of the floor. The ship rocked lightly in the calm waves, and Emlyn crossed carefully to her trunk.
 
@@ -146,9 +146,25 @@ Emlyn strained her eyes as she picked out a new set of undergarments and her bes
 
 ---
 
-Emlyn wakes up... Hmmm... Afer a bad dream? Perhaps a portent of something to come? Maybe she is blessed with foresight.. Anyway, either way she can't quite remember. But she is heading into the port, onboard a ship...
+A thin layer of mist started to disappear as the sun rose slowly over the bay, revealing the city beyond. Emlyn could just make out the streets and buildings covering the escarpment of the peninsula. The Royal Keep rose above all, a glimmering jewel of hewn white stone, sitting at the centre of the Rens, the Capital city of Kris.
 
-#.
+Orders thundered across the deck, as the captain, strutted around ordering his crew to weigh anchor and head for port. The sound of stressed rope and fluttering canvas filled the air, and the ship lurched slowly forward, taking the stiff easterly breeze into the harbour.
+
+Emlyn found Orin leaning on the port bow, taking in the salty air and fine mist kicked up by the waves. He smiled at her as she approached, still glowering miserably.
+
+"Well don't you look like sunshine?", he asked cheerfully as sailors dashed across the deck, dodging around her.
+
+"I'm not a morning person", she responded, smiling weakly. "I am starting to feel better already".
+
+"Well that is good. We need to make our best impression when we make shore."
+
+The city grew steadily, and the roar of the captain with it, who made swift use of his switch on any sailor he thought wasn't working hard enough. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
+
+With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, and the gangplank was dropped to the awaiting officials below.
+
+With a big smile and hand outstretched.
+
+0.
 ---
 
 Emlyn was roused from her deep sleep by a Orin's hand shaking her gently.
