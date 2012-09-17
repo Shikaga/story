@@ -90,11 +90,11 @@ A sixteen year old girl, hair matted to her face with sweat, stared into The Cap
 
 The cry rang out clearly through the bright courtyard, as Emlyn hung tightly to the wall, trying not to look down at the flagstones that lay three stories below her.
 
-She could hear laughter beginning to build from those watching from the ground below. She wanted to everything to be over, to be anywhere but here. But she only had two choices. Downards, towards those mocking her far below, or upwards, where Orin's outstretched hand was just out of reach.
+She could hear laughter beginning to build from those watching from the ground below. She wanted for everything to be over, to be anywhere but here. But she only had two choices. Downards, towards those mocking voices far below, or upwards, where Orin's outstretched hand was just out of reach.
 
-Emlyn thought that she could bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything disparaging to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
+Emlyn thought that she could probably bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything disparaging to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
 
-But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones. Her legs followed her, and she let her body take over as she resumed her climb. She felt the rope around her once again begin to taughten around her waist as she was belayed from the ground.
+But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones of the wall she was climbing. Her legs followed her, and she let her body take over as she resumed her climb. She felt the rope around her once again begin to taughten as she was belayed from the ground.
 
 Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretched them out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
 
@@ -102,39 +102,41 @@ And as she once again stretched out hand for a hold, she felt Orin wrapping his 
 
 "That wasn't so hard was it?", Orin asked, trying and failing to hide the huge grin on his face. For a master spy, Orin never did seem to be able to hide his emotions around Emlyn.   
 
-Emlyn just stared at him as she tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, and it dslowly descended to take its next victim.
+She just stared at him, and tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, and it dslowly descended to take its next victim.
 
 "Time to get up Emlyn", Orin said, as she took a step forward, heading for the stairs.
 
-"What?", she enquired, but the world started list beneath her, her feet slipping as the roof rolled beneath her. She cruched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happenign around him
+"What?", she enquired, but the world started list beneath her, her feet slipping as the roof started careening sideways. She crouched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happening around him.
 
-"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin now seemed completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into oblivion
+"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin was now completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into oblivion.
 
 As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing into the great beyond.
 
-The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to singe in the searing heat.
+The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to singe in the billowing heat.
 
-The screams of thousands rose up above the crackling furnace, as soldier's warcrys mixed with their screams, resounding through the air as they struck at each other brutally. 
+The screams of thousands rose up above the crackling furnace, as soldier's warcrys mixed with their screams, resounded through the air as they struck at each other brutally. 
 
 "It's time to wake up", Orin repeated, his dead eyes surveying the horror with calm acceptance.
 
 Emlyn tried to move, to scream, to strike out at the pain and suffering that was engulfing her. The heat rose, and she tried to shield her face, and she felt her tears hiss as they evaporated off her face in the searing heat. The fire had risen to a deafening roar, and the smoke stung her eyes, blinding her.
 
-And just as Emlyn had given up all hope, Orin's hand flew through the fire, and caught Emlyn's shoulder, and caught her, centring her in the malestrom.
+And suddenly, Orin's hand flew through the fire, and caught Emlyn's shoulder, centering her in the malestrom.
 
 "WAKE UP!"
 
 ---
 
-Emlyn sat bolt upright in her bed, her arms scrabbling wildly, looking for purchase. 
+Emlyn sat bolt upright in her bed, arms scrabbling wildly looking for purchase. 
 
-"Woah", Orin yelled as she locked onto his arm, her fingers forming a vice-like grip upon his forearm. "Calm down, Rosie."
+"Woah", Orin yelled as Emlyn locked onto his arm, her fingers forming a vice-like grip upon his forearm. "Calm down, Rosie."
+
+Disoriented, Emlyn's head spun, taking in her surroundings. Her bed, the ship and her master. The cabin was completely dark, except for the dull light of a small lamp.
 
 Emlyn's shift was drenched in sweat, and she could feel the knots in her back from her spasms. She wiped her hair away from where it stuck to her face, and took a few calm breaths.
 
 "Sorry", Emlyn replied. "Just a bad dream". Orinn put the back of his hand to her head, and looking at her with a  small frown on his face.
 
-"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well get dressed, and meet me on deck", he ordered.
+"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well it'll be dawn in a few minutes.  Get dressed, and meet me on deck", he ordered.
 
 As Orin departed Emlyn swung her legs off her bunk, touching the cold hard wood of the floor. The ship rocked lightly in the calm waves, and Emlyn crossed carefully to her trunk.
 
