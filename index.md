@@ -162,7 +162,17 @@ The city grew steadily, and the roar of the captain with it, who made swift use 
 
 With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, and the gangplank was dropped to the awaiting officials below.
 
-With a big smile and hand outstretched.
+With a big smile and hand outstretched, the captain descended. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
+
+And with the formalities concluded, it was time for their departure. Orin quickly got a hold of a cabin boy, and after a quick exchange of copper arranged their trunks to be brought to the pier.
+
+Steadily, Emlyn and Orin made their way down the steep gangway and alighted on the harbour wall of Rens. The roar of dockworkers filled the air as men stood around discussing the ship and ladies of the night flaunted their wares for the eager sailors watching from the ship.
+
+Orin struck his way through the throng on his way to find a stagecoach to take them further on their journey. Emlyn sat in his wake and her head spun as she took in the babbling cacophony of rough speach and alien accents milling around her. 
+
+It suddenly occured to Emlyn how far she was from home. On the ship she had been surrounded by Verrisian men. As far as she had travelled she had never really left Verris, it had travelled with her. 
+
+But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
 
 0.
 ---
