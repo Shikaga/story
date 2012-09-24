@@ -158,15 +158,32 @@ Emlyn found Orin leaning on the port bow, taking in the salty air and fine mist 
 
 "Well that is good. We need to make our best impression when we make shore."
 
-The city grew steadily, and the roar of the captain with it, who made swift use of his switch on any sailor he thought wasn't working hard enough. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
+The city grew steadily, and the roar of the first mate with it, who made swift use of his switch on any sailor he thought wasn't working hard enough, while the captain watched passively and adjusted his best suit, making sure he looked his best. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
 
-With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, and the gangplank was dropped to the awaiting officials below.
+With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, a thousand parts moving as one, bringing their journey to an end.
+
+The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer,  staring up at the ship and speculating wildly among themselves what goods might be on the ship.  
+
+The sailor's abandoned their duties and leant wildly over the railing shouting down to their aquaintances on the dock below, and whistled to the ladies of the night who flaunted their wares eagerly.
+
+The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties and the ship was quicky prepared and a gangplank was dropped to the awaiting officials below.
 
 With a big smile and hand outstretched, the captain descended. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
 
-And with the formalities concluded, it was time for their departure. Orin quickly got a hold of a cabin boy, and after a quick exchange of copper arranged their trunks to be brought to the pier.
+And with the formalities concluded, it was time for their departure. 
 
-Steadily, Emlyn and Orin made their way down the steep gangway and alighted on the harbour wall of Rens. The roar of dockworkers filled the air as men stood around discussing the ship and ladies of the night flaunted their wares for the eager sailors watching from the ship.
+0.
+---
+
+The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
+
+The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard. 
+
+
+Random.
+---
+
+Steadily, Emlyn and Orin made their way down the steep gangway and alighted on the harbour wall of Rens. 
 
 Orin struck his way through the throng on his way to find a stagecoach to take them further on their journey. Emlyn sat in his wake and her head spun as she took in the babbling cacophony of rough speach and alien accents milling around her. 
 
@@ -174,10 +191,8 @@ It suddenly occured to Emlyn how far she was from home. On the ship she had been
 
 But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
 
-0.
+Plot Guideline
 ---
-
-Emlyn was roused from her deep sleep by a Orin's hand shaking her gently.
 
 Orin and Emlyn find their way to the Royal Keep, where they are working for some minor noble doing translations, scribing, perhaps managing books etc. 
 
