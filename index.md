@@ -162,13 +162,13 @@ The city grew steadily, and the roar of the first mate with it, who made swift u
 
 With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, a thousand parts moving as one, bringing their journey to an end.
 
-The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer,  staring up at the ship and speculating wildly among themselves what goods might be on the ship.  
+The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer,  staring up at the ship and speculating wildly among themselves what goods their would be to trade.  
 
-The sailor's abandoned their duties and leant wildly over the railing shouting down to their aquaintances on the dock below, and whistled to the ladies of the night who flaunted their wares eagerly.
+The sailor's abandoned their duties and leant wildly over the railing shouting down to their aquaintances on the dock below, and whistled to the ladies of the night who flaunted themselves eagerly.
 
-The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties and the ship was quicky prepared and a gangplank was dropped to the awaiting officials below.
+The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties and the ship was quickly prepared and a gangplank was dropped to the awaiting officials below.
 
-With a big smile and hand outstretched, the captain descended. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
+With a big smile and hand outstretched, the captain descended down the narrow gangway to the dock below. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
 
 And with the formalities concluded, it was time for their departure. 
 
@@ -178,6 +178,7 @@ And with the formalities concluded, it was time for their departure.
 The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
 
 The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard. 
+
 
 
 Random.
