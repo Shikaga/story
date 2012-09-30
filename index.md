@@ -92,9 +92,9 @@ The cry rang out clearly through the bright courtyard, as Emlyn hung tightly to 
 
 She could hear laughter beginning to build from those watching from the ground below. She wanted for everything to be over, to be anywhere but here. But she only had two choices. Downards, towards those mocking voices far below, or upwards, where Orin's outstretched hand was just out of reach.
 
-Emlyn thought that she could probably bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything disparaging to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
+Emlyn thought that she could probably bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
 
-But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones of the wall she was climbing. Her legs followed her, and she let her body take over as she resumed her climb. She felt the rope around her once again begin to taughten as she was belayed from the ground.
+But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones of the wall she was climbing. Her legs followed her, and she let her body take over as she resumed the climb. She felt the rope around her once again begin to taughten as she was belayed from the ground.
 
 Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretched them out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
 
@@ -102,13 +102,13 @@ And as she once again stretched out hand for a hold, she felt Orin wrapping his 
 
 "That wasn't so hard was it?", Orin asked, trying and failing to hide the huge grin on his face. For a master spy, Orin never did seem to be able to hide his emotions around Emlyn.   
 
-She just stared at him, and tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, and it dslowly descended to take its next victim.
+She just stared at him, and tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, where it promptly descended to take its next victim.
 
 "Time to get up Emlyn", Orin said, as she took a step forward, heading for the stairs.
 
-"What?", she enquired, but the world started list beneath her, her feet slipping as the roof started careening sideways. She crouched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happening around him.
+She swivled on the spot to look at Orin. "What?", she began to ask, but as she formed the words the world started list beneath her, her feet slipping as the roof started careening sideways. She crouched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happening around him.
 
-"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin was now completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into oblivion.
+"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin was now completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into the distance.
 
 As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing into the great beyond.
 
@@ -136,13 +136,18 @@ Emlyn's shift was drenched in sweat, and she could feel the knots in her back fr
 
 "Sorry", Emlyn replied. "Just a bad dream". Orinn put the back of his hand to her head, and looking at her with a  small frown on his face.
 
-"Meranis not up yet?", he asked, and Emlyn just shook her head. "Okay, well it'll be dawn in a few minutes.  Get dressed and meet me on deck", he ordered.
+"Meranis not up yet?", he asked, a look of concern on his face. Emlyn just shook her head, breathing deeply. "Okay, well it'll be dawn in a few minutes.  Take your time and meet me on deck when you are ready", he ordered.
 
-As Orin departed Emlyn swung her legs off her bunk, touching the cold hard wood of the floor. The ship rocked lightly in the calm waves, and Emlyn crossed carefully to her trunk.
+As Orin departed Emlyn swung her legs off her bunk, touching the cold hard wood of the floor and held her head in her hands as she stared at the floor. The cabin was dark, illuminated only by the small lantern, and the dull purple halo of the first light of day, peeking through the porthole.
 
-The cabin was dark, illuminated only by the small lantern, and the dull purple halo of the first light of day, peeking through the porthole.
+Her dreams were getting worse. Orin tried not to show it but Emlyn could tell that he was concerned. She wouldn't be the first of those with her gift to go insane. She felt sick to her stomach and Emlyn tried to gather her strength. 
 
-Emlyn strained her eyes as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left her cabin.
+While Emlyn may be sick and weak from withdrawal from an unseen force, Rosie was a young hale young lady with an energy for life. Emlyn meditated on her alias, taking on her second skin, and preparing for the day ahead.
+
+
+The ship rocked lightly in the calm waves, and after just a few minutes later Rosie crossed carefully to her trunk.
+
+Emlyn eyes strained as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left her cabin.
 
 ---
 
