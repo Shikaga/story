@@ -147,11 +147,11 @@ While Emlyn may be sick and weak from withdrawal from an unseen force, Rosie was
 
 The ship rocked lightly in the calm waves, and after just a few minutes later Rosie crossed carefully to her trunk.
 
-Emlyn eyes strained as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left her cabin.
+Emlyn strained her eyes as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left the cabin.
 
 ---
 
-A thin layer of mist started to disappear as the sun rose slowly over the bay, revealing the city beyond. Emlyn could just make out the streets and buildings covering the escarpment of the peninsula. The Royal Keep rose above all, a glimmering jewel of hewn white stone, sitting at the centre of the Rens, the Capital city of Kris.
+The thin layer of mist started to disperse as the sun rose slowly over the bay, revealing the city beyond. Emlyn could just make out the streets and buildings covering the escarpment of the peninsula. The Royal Keep rose above all, a glimmering jewel of hewn white stone, sitting at the centre of the Rens, the Capital city of Kris.
 
 Orders thundered across the deck, as the captain, strutted around ordering his crew to weigh anchor and head for port. The sound of stressed rope and fluttering canvas filled the air, and the ship lurched slowly forward, taking the stiff easterly breeze into the harbour.
 
@@ -159,43 +159,47 @@ Emlyn found Orin leaning on the port bow, taking in the salty air and fine mist 
 
 "Well don't you look like sunshine?", he asked cheerfully as sailors dashed across the deck, dodging around her.
 
-"I'm not a morning person", she responded, smiling weakly. "I am starting to feel better already".
+"I'm not a morning person", she responded, smiling weakly. "But I am starting to feel better already".
 
-"Well that is good. We need to make our best impression when we make shore."
+Orin simply nodded.
 
-The city grew steadily, and the roar of the first mate with it, who made swift use of his switch on any sailor he thought wasn't working hard enough, while the captain watched passively and adjusted his best suit, making sure he looked his best. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
+The city grew steadily, and the roar of the first mate with it, who made swift use of his switch on any sailor he thought wasn't working hard enough, while the captain watched passively and adjusted his suit, making sure he looked his best. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
 
-With one smooth motion, ropes were thrown to shore, and massive ship was drawn into the port, a thousand parts moving as one, bringing their journey to an end.
+The ship glided to a stop and in one smooth motion ropes were thrown to shore, and the massive ship was drawn into the port, a thousand parts moving as one, bringing their journey to an end.
 
-The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer,  staring up at the ship and speculating wildly among themselves what goods their would be to trade.  
+The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer, staring up at the ship and speculating wildly among themselves what goods there would be to trade.  
 
 The sailor's abandoned their duties and leant wildly over the railing shouting down to their aquaintances on the dock below, and whistled to the ladies of the night who flaunted themselves eagerly.
 
-The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties and the ship was quickly prepared and a gangplank was dropped to the awaiting officials below.
+The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties. With much bellowing the ship was quickly prepared and a gangplank was dropped to the awaiting officials below.
 
 With a big smile and hand outstretched, the captain descended down the narrow gangway to the dock below. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
 
-And with the formalities concluded, it was time for their departure. 
+And with the formalities concluded, it was time for them to depart.
 
 0.
 ---
 
 The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
 
-The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard. 
+The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard and the maelstrom of people. Emlyn's head spun as she took in the babbling cacophony of rough speach and alien accents milling around them.
 
+It suddenly occured to Emlyn how far she was from home. On the ship she had been surrounded by Verrisian men. As far as she had travelled she had never really left Verris, it had travelled with her. 
 
+But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
+
+"Now remember Rosie", Orin said, disturbing Emlyn from her trance, "when me meet Lord Kepler, you need to present yourself with perfect propriety. Curtsy deeply, don't talk to him unless he asks you a question directly. Accept any food or drink that he offers. Basically just be a perfect lady."
+
+Of course Emlyn knew all of this. She was perfectly practicesed in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
+
+But it was important that they be heard to be concerned. There was a good chance
 
 Random.
 ---
 
 Steadily, Emlyn and Orin made their way down the steep gangway and alighted on the harbour wall of Rens. 
 
-Orin struck his way through the throng on his way to find a stagecoach to take them further on their journey. Emlyn sat in his wake and her head spun as she took in the babbling cacophony of rough speach and alien accents milling around her. 
-
-It suddenly occured to Emlyn how far she was from home. On the ship she had been surrounded by Verrisian men. As far as she had travelled she had never really left Verris, it had travelled with her. 
-
-But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
+Orin struck his way through the throng on his way to find a stagecoach to take them further on their journey. 
 
 Plot Guideline
 ---
