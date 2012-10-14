@@ -194,6 +194,52 @@ Of course Emlyn knew all of this. She was perfectly practicesed in all the custo
 
 But it was important that they be heard to be concerned. There was a good chance
 
+Bored...
+
+---
+
+Orin is introducing himself or whatever. Orin orders her to go to his room and prepare everything for him, giving him time to talk business with their landlord/employer.
+
+---
+
+"This way mi'lady", a maid said, waving for her to follow her. Emlyn walked through the emaculately decorated hallways of the back quarters. These clearly did not have the kind of splendor and workmanship that the front rooms that they had come through had, but these were clearly meant to be enjoyed by the honored guests of the house.
+
+Clean wood linings edged the corridors and a beautiful red carpet ran along the middle. A clear bright light was thrown by the multitude of simple but beautiful chandeliers, evenly spaced along the ceiling. 
+
+"Here we go", the maid said, pulling a key from her pocket and throwing a door wide and inviting Emlyn to enter.
+
+The room was relatively small, but with a double bed with hanging drapes positioned against the wall in the middle of the room. Their trunks and cases were stacked tidliy at the bottom of the bed and Emlyn intuitively made a quick count to make sure they were all present. She would have to inspect them more throughly to ensure that they hadn't been tampered with. 
+
+A Large desk sat against wall on the far side of the room, below a glass window overlooking the courtyard on the inside of the keep. Emlyn peeked out at the guards drilling and servents working far below.
+
+"Your room is this way mi'lady", the maid said once again, indicating a door to the right of Orin's bed. "And the privy is over there", she said indicating the door opposite.
+
+"Thank you", Emlyn replied as they entered her quarters.
+
+The maid held out the key to Emlyn. "I have been told that Master Tomlin appreciates his privacy", she said. "This is the key for your room. The only other copies are kept by the Captain of the Guard and the King himself".
+
+Emlyn's eyes darted around her room. As with everything else, this room was well kept. The walls were clean stone, hung with simple but well woven tapestries and a fire crackled in the hearth. Emlyn's single bed was fresh and looked soft and comfortable. Orin had clearly convinced their custodian of his worth for them to be assigned such elegant rooms.
+
+"The servants entrance has been barred from the inside.", the maid continued, indicating the door in the corner of Emlyn's room. "If you would like any service, simply unbar this door and pull upon the cord right there", she said waving her hand at the braided velvet rope. "We will also try the door three times a day to maintain the fires and so on".
+
+"Thank you", Emlyn said again, returning to the main chamber, slipping the key into her pocket as she did so. "I think I can sort everything else out."
+
+The maid curtsied and made her way to the door, before turning and saying, "Lord *NAME* likes to entertain his guests well on their first night. Your master will likely not return until the early morning
+
+"I hope I am not being to bold, but you are welcome at the servants table if you would like some company", she said giving Emlyn a small smile.
+
+"I am sorry, I don't think I got your name", Emlyn said suddenly embarresed at her thoughtlessness.
+
+"Mary mi'lady" *Get it, MAID Mary, lol* 
+
+"Just call me Rosie, Mary. Thank you for the invitation. I will bear it in mind."
+
+"Yes mi'lady" she replied, curtsied and left, closing the door behind her.
+
+Emlyn sighed and fell face forwards onto Orin's bed, she would have to work on the names another time. It suddenly occured to Emlyn that this is the first time that she had been truly alone for over a month.
+
+Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways.
+
 Random.
 ---
 
