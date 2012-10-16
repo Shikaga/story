@@ -202,15 +202,19 @@ Orin is introducing himself or whatever. Orin orders her to go to his room and p
 
 ---
 
-"This way mi'lady", a maid said, waving for her to follow her. Emlyn walked through the emaculately decorated hallways of the back quarters. These clearly did not have the kind of splendor and workmanship that the front rooms that they had come through had, but these were clearly meant to be enjoyed by the honored guests of the house.
+"This way mi'lady", the maid instructed, indicating for Emlyn to follow her. They had stepped into the beautifully decorated hallways of the back quarters, where the honored servants and minor nobles rooms where located. 
 
-Clean wood linings edged the corridors and a beautiful red carpet ran along the middle. A clear bright light was thrown by the multitude of simple but beautiful chandeliers, evenly spaced along the ceiling. 
+These clearly didn'tt have the kind of splendor and workmanship that the front rooms that they had come through had. But these halls still clearly outshone the most elegant corridors one could find in the House of Eyes back in Verris.
+
+Clean wood linings edged the corridors and a beautiful red carpet ran along the middle and a clear bright light was thrown by the multitude of simple but beautiful chandeliers, evenly spaced along the ceiling. 
+
+The walked for a significant distance, taking several turns, but remaining on the same floor. Emlyn made notes of all the doors and stairways that they passed, trying to fabricate a mental model inside her head.
 
 "Here we go", the maid said, pulling a key from her pocket and throwing a door wide and inviting Emlyn to enter.
 
-The room was relatively small, but with a double bed with hanging drapes positioned against the wall in the middle of the room. Their trunks and cases were stacked tidliy at the bottom of the bed and Emlyn intuitively made a quick count to make sure they were all present. She would have to inspect them more throughly to ensure that they hadn't been tampered with. 
+The room was relatively small, but still exquisitely furnished, wooden panels throughout and tapestries draped upon them.  A double bed with hanging drapes was positioned against the wall in the middle of the room. Their trunks and cases were stacked tidliy at the bottom of the bed and Emlyn intuitively made a quick count to make sure they were all present. She would have to inspect them more throughly to ensure that they hadn't been tampered with. 
 
-A Large desk sat against wall on the far side of the room, below a glass window overlooking the courtyard on the inside of the keep. Emlyn peeked out at the guards drilling and servents working far below.
+A Large desk sat against wall on the far side of the room, below a glass window overlooking the courtyard on the inside of the keep. Emlyn peeked out at the guards drilling and servents working far below. 
 
 "Your room is this way mi'lady", the maid said once again, indicating a door to the right of Orin's bed. "And the privy is over there", she said indicating the door opposite.
 
@@ -218,15 +222,15 @@ A Large desk sat against wall on the far side of the room, below a glass window 
 
 The maid held out the key to Emlyn. "I have been told that Master Tomlin appreciates his privacy", she said. "This is the key for your room. The only other copies are kept by the Captain of the Guard and the King himself".
 
-Emlyn's eyes darted around her room. As with everything else, this room was well kept. The walls were clean stone, hung with simple but well woven tapestries and a fire crackled in the hearth. Emlyn's single bed was fresh and looked soft and comfortable. Orin had clearly convinced their custodian of his worth for them to be assigned such elegant rooms.
+Emlyn's eyes darted around her room. As with everything else, this room was well kept. The walls were clean wooden panels, hung with simple but well woven tapestries and a fire crackled in the hearth. Emlyn's single bed was fresh and looked soft and comfortable.
 
-"The servants entrance has been barred from the inside.", the maid continued, indicating the door in the corner of Emlyn's room. "If you would like any service, simply unbar this door and pull upon the cord right there", she said waving her hand at the braided velvet rope. "We will also try the door three times a day to maintain the fires and so on".
+"The servants entrance has been barred from the inside.", the maid continued, indicating the door in the corner of Emlyn's room. "If you would like any service, simply unbar this door and pull upon that cord", she said waving her hand at the braided velvet rope. "We will also try the door three times a day to maintain the fires and so on".
 
 "Thank you", Emlyn said again, returning to the main chamber, slipping the key into her pocket as she did so. "I think I can sort everything else out."
 
-The maid curtsied and made her way to the door, before turning and saying, "Lord *NAME* likes to entertain his guests well on their first night. Your master will likely not return until the early morning
+The maid curtsied and made her way to the door, before turning and saying, "Lord *NAME* likes to entertain his guests well on their first night. Your master will likely not return until the early morning".
 
-"I hope I am not being to bold, but you are welcome at the servants table if you would like some company", she said giving Emlyn a small smile.
+She took a deep breath before continuing. "I hope I am not being to bold, but you are welcome at the servants table if you would like some company", she said giving Emlyn a small smile.
 
 "I am sorry, I don't think I got your name", Emlyn said suddenly embarresed at her thoughtlessness.
 
@@ -236,9 +240,17 @@ The maid curtsied and made her way to the door, before turning and saying, "Lord
 
 "Yes mi'lady" she replied, curtsied and left, closing the door behind her.
 
-Emlyn sighed and fell face forwards onto Orin's bed, she would have to work on the names another time. It suddenly occured to Emlyn that this is the first time that she had been truly alone for over a month.
+Emlyn sighed and fell face forwards onto Orin's wonderfully soft bed. She would have to work on the names another time. 
 
-Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways.
+It suddenly occured to Emlyn that this is the first time that she had been truly alone for over a month.
+
+Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways. But there was still a lot to do.
+
+Emlyn rolled over and returned to her feet ans started to get to work. She started seperating their trunks and placing hers in her room.
+
+Once she had finished unloading her clothes into her wardrobe and placing her few posessions upon her desk she returned to begin on Orin's bags.
+
+Orin's bags were filled with a mixture of tools of the trade. Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. They included some of the fi
 
 Random.
 ---
