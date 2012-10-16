@@ -250,7 +250,29 @@ Emlyn rolled over and returned to her feet ans started to get to work. She start
 
 Once she had finished unloading her clothes into her wardrobe and placing her few posessions upon her desk she returned to begin on Orin's bags.
 
-Orin's bags were filled with a mixture of tools of the trade. Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. They included some of the fi
+Orin's bags were filled with a mixture of tools of the trade. Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. Each book was carefully selected, procured from around the world at great expense to represent Orin's widespread travel as a caligrapher.
+
+Emlyn stacked them neatly on below the window on the desk, next to the reams of fine paper, pens and pots of ink.
+
+It was almost certain that they were being watched. It would be incredibly foolish for them not be being watched, for a royal scribe was privy to many secrets. Of course Orin would not be given secrets that weren't to be known within the walls of the keep. His primary job would be taking down the decisions of his lord, writing warrants and reading ancient histories.
+
+Nontheless, it would onyl be prudent for the royal spies to be investigating anyone who was allowed inside their wars. For at every step one could find a charletan who had weaseled his way to power through smooth words and would sell your small secrets to others for a few coin.
+
+Emlyn and Orin had practised their business for many hours before and during their journey. Thye slowly became their characters, a perfect pair of master and apprentice writers, outwardly seeming nothing more than overly obsessed librarians, soaked in words and letters.
+
+During her training Emlyn had been taught about the secret of truly invisibility. The importance of discarding yourself, to become your character so absolutely, that eventually Orin himself would have difficulty explaining to her that she was actually a spy.
+
+So, when it came time to prepare her masters rooms, she did not think of the secret mechanisms and encoded ciphers emaculately hidden in their bags, for of course, why would there be such things hidden in the bags of a scribe?
+
+Instead, she did exactly as a young apprentice should, and ensured that her master's room was adequately prepared. Where there candles for night time writing? Were his reading glasses near at hand should he require them? Was his chair bestowed with a soft cushion?
+
+And when her master returned, she would speak to him as befitted someone of her station, with respect and humility. And to all the world they would seem like nothing more than exactly what they claimed to be.
+
+X.
+---
+
+Emlyn stood back...
+
 
 Random.
 ---
