@@ -246,21 +246,19 @@ It suddenly occured to Emlyn that this is the first time that she had been truly
 
 Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways. But there was still a lot to do.
 
-Emlyn rolled over and returned to her feet ans started to get to work. She started seperating their trunks and placing hers in her room.
+Emlyn rolled over and returned to her feet ans started to get to work. She started seperating their trunks and placing hers in her room. She upacked them and once she had finished unloading her clothes into her wardrobe and placing her few posessions upon her desk she returned to begin on Orin's bags.
 
-Once she had finished unloading her clothes into her wardrobe and placing her few posessions upon her desk she returned to begin on Orin's bags.
-
-Orin's bags were filled with a mixture of tools of the trade. Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. Each book was carefully selected, procured from around the world at great expense to represent Orin's widespread travel as a caligrapher.
+Orin's bags were filled with a mixture of tools of the trade; Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. Each book was carefully selected, procured from around the world at great expense to represent Orin's widespread travel as a caligrapher.
 
 Emlyn stacked them neatly on below the window on the desk, next to the reams of fine paper, pens and pots of ink.
 
 It was almost certain that they were being watched. It would be incredibly foolish for them not be being watched, for a royal scribe was privy to many secrets. Of course Orin would not be given secrets that weren't to be known within the walls of the keep. His primary job would be taking down the decisions of his lord, writing warrants and reading ancient histories.
 
-Nontheless, it would onyl be prudent for the royal spies to be investigating anyone who was allowed inside their wars. For at every step one could find a charletan who had weaseled his way to power through smooth words and would sell your small secrets to others for a few coin.
+Nontheless, it would only be prudent for spies to be investigating anyone who was allowed inside their walls. For at every step one could find a charletan who had weaseled his way to power through smooth words and would sell your small secrets to others for a few coin.
 
-Emlyn and Orin had practised their business for many hours before and during their journey. Thye slowly became their characters, a perfect pair of master and apprentice writers, outwardly seeming nothing more than overly obsessed librarians, soaked in words and letters.
+Emlyn and Orin had practised their business for many hours before and during their journey. They slowly and painstakingly became their characters, a perfect pair of master and apprentice writers, outwardly seeming nothing more than overly obsessed librarians, soaked in words and letters.
 
-During her training Emlyn had been taught about the secret of truly invisibility. The importance of discarding yourself, to become your character so absolutely, that eventually Orin himself would have difficulty explaining to her that she was actually a spy.
+During her training Emlyn had been taught about the secret of truly invisibility. The importance of discarding one's self, to become a character so absolutely, that eventually your parents would have difficulty explaining to you who you actually were.
 
 So, when it came time to prepare her masters rooms, she did not think of the secret mechanisms and encoded ciphers emaculately hidden in their bags, for of course, why would there be such things hidden in the bags of a scribe?
 
@@ -271,6 +269,26 @@ And when her master returned, she would speak to him as befitted someone of her 
 X.
 ---
 
+"You come very highly recommended among the Guild of Scribes", Lord Tosca ventured as Orin let himself drop into a comfortable leather chair.
+
+"Well, it is very nice of them to say so. I fear that they might say the same of every candidate they send to someone of your station.
+
+Lord Tosca smiled, and a footman approached Orin with a exquisite chrystal goblet upon a silver tray. "Brandy sir?"
+
+"Thank you very much", Orin replied, retrieving the glass with enthusiasm. "To your health!", Orin declared, leaning forward, so that he was almost standing as he did so. Lord Tosca raised his glass as well thought remaining motionless in his seat.
+
+"And yours", he replied.
+
+They both took a deep drink and a moment of silence fell between them before Lord Tosca continued. 
+
+"So, I assume that have been fully informed of your duties here.", he inquired.
+
+"Well, of course, my only duty is to assist you in any way I can and to the best of my ability". Orin ventured. "But beyond that I have been told that my primary duties will be instructing your two young daughters in their studies. Math, history, geography, language and of course, lettering."
+
+
+
+X.
+---
 Emlyn stood back...
 
 
