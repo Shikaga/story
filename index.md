@@ -275,21 +275,145 @@ X.
 
 Lord Tosca smiled, and a footman approached Orin with a exquisite chrystal goblet upon a silver tray. "Brandy sir?"
 
-"Thank you very much", Orin replied, retrieving the glass with enthusiasm. "To your health!", Orin declared, leaning forward, so that he was almost standing as he did so. Lord Tosca raised his glass as well thought remaining motionless in his seat.
+"Thank you very much", Orin replied, retrieving the glass with enthusiasm. "To your health", Orin declared solemnly, leaning forward so that he was almost standing as he did so. 
 
-"And yours", he replied.
+Lord Tosca raised his glass as well, though remaining motionless in his seat. "And yours", he replied.
 
 They both took a deep drink and a moment of silence fell between them before Lord Tosca continued. 
 
 "So, I assume that have been fully informed of your duties here.", he inquired.
 
-"Well, of course, my only duty is to assist you in any way I can and to the best of my ability". Orin ventured. "But beyond that I have been told that my primary duties will be instructing your two young daughters in their studies. Math, history, geography, language and of course, lettering."
+"Well, of course, my only duty is to assist you in any way I can and to the best of my ability", Orin ventured taking a sip of brandy. "But beyond that I have been told that my primary duties will be instructing your two young daughters in their studies", he continued, "Math, history, geography, language and of course, lettering."
 
+"I don't think that you will find much problem with them. They are sweet girls, I can assure you that I keep a civil house and expect my daughters to respect their tutors as they would have them respect me. Though if I know girls, that means we have only a few years of civility left.
 
+Orin smiled politely before Lord Tosca continued. "My wife looks after the children's education, and she will instruct you on the specifics that she would liek you to cover, and how so.
+
+ "Like all mother's, she can be very...", Lord Tosca paused, for a second before continuing. "particular, when it comes to her daughters well being. I suspect, that no matter what you do she will find something that she would like altered. Do your best to humor her".
+
+"Of course, Sir", Orin acknowledged, keeping his voice flat. It was one thing for a Lord to critisize his own wife, but Orin suspected that he ventured even partial agreement he would be likely to offend.
+
+"This apprentice of yours...", Tosca inquired. "Does she also tutor?"
+
+"Yes, Rosie is an incredibly bright young woman, Sir." Orin replied. "She is very knowledgable about the ways of the court and propriety. I think that your daughters will really like her."
+
+"That is good. I sometimes worry that they don't have any older girls to look up to. All these city girls are spoiled brat. I would like them to have an intelligent person around."
+
+"I am sure she will be an excellent role model sir".
+
+"That's good"
+
+Bored.
 
 X.
 ---
-Emlyn stood back...
+
+Clandestine meeting
+
+X.
+---
+
+With everything finally prepared, Emlyn stood back to inspect the room. Orin still hadn't returned, and she a feeling that Mary had been right about him not returning too soon.
+
+With conviction Emlyn headed to the door, tugging on the handle as she made her way into the corridor. Emlyn didn't know the way to the servants quarters, but it seemed likely that if the passage turning right would take her back to Orin and the Lord's chambers, then the servents were probably in ythe other direction.
+
+She struck out down the corridors, her feet echoing off the wooden panels. 
+
+Emlyn stepped into a large stone room. Faces turned to look at her from the long wooden table where servants of all ranks and masters say with meals in front of them.
+
+A wave went up from the end of the table and Emlyn saw Mary indicating for her to join her.
+
+"Over there", Mary said, pointing towards the corner of the room where a large bowl of stew was slowly cooling, with a stack of plates and cutlery accompanying it.
+
+"Glad to see you came to join us", Mary said as Emlyn dropped into the seat next to her. "You look hungry", Mary exclaimed staring at the mountain of food heaped onto Emlyn's plate.
+
+Emlyn blushed bright red and Mary let out a high, bubbly laugh. 
+
+"I am just joking!", she said touching Emlyn affectionately on the arm. "I am sure that you had a long journey".
+
+"Three weeks", Emlyn responded politely, starting to work on her food. She could feel many eyes on her and was suddenly very aware that she didn't want to make a fool of herself.
+
+"This is Jake, Ben, Samantha...", Mary said, going around the table, oblivious to Emlyn's discomfort. "This is Emlyn everyone", she said once she had introduced everyone. "She is the apprentice of Lord Tosca's new tutor!".
+
+A smattering of welcomes and greetings where directed Emlyn's way. 
+
+"So good to meet you!", said Jake, who was sat next to Emlyn. He must have been in his late teens Emlyn guessed, and quite attractive.
+
+"No, don't yo even start Jake", Mary said leaning over Emlyn pushing the boy back with her hand as he laughed. "Don't you listen to this one Rosie. He is all sweet words until you actually need him".
+
+"Hey, that's not fair!", Jake retorted. "Most people just need me too much", he replied as he returned to his food.
+
+The babble increased as everyone returned to their previous conversations. Emlyn took a breath, and studied each of her new acquaintances faces, and going through their names again. Orin would be most upset at her if she wasn't able to recall every name and face with absolute precision later. 
+
+The food slowly disappeared from her face while Mary chatted to her happily, with Emlyn returning the occasional comment to keep the conversation flowing. Mary didn't seem to mind Emlyn's quietness and had soon informed Emlyn of all the latest gossip in the keep.
+
+The talk about town was all about the mobs that were forming in the principalities. Prince Alex Tyne, had just marched out of the city two days ago to quell the uprising and there were a lot of rumors flying across the table.
+
+"I heard that they were led by giant tiger, who walks among the rebels camp and tame as a cat, but fights alongside them, during the battles"
+
+"Prince Tyne is going to execute half of all the rebels to teach them a lesson about loyalty", another person ventured.
+
+"Don't be ridiculous, if he kills half the rebels who is going to bring in the crop at harvest time?", another servent yelled. "I heard he was simply going to let his soldiers get the pick of their wives and daughters to bring home with them!"
+
+A loud laugh went up from the table, and Emlyn quickly turned to ask Mary who Prince Alex Tyne was.
+
+"Prince Alex?" Mary asked increulously. "Wow, you must have come far if you don't know who Prince Alex Tyne is."
+
+Mary's unspoken question hung in the air, but when Emlyn didn't answer it Mary continued. "Prince Alex Tyne is eldest son of the richest family in Kris. After the Royal Monsent line itself, of course."
+
+Mary went on to describe Alex Tyne's wedding to Catherine Monsent. The description that Mary gave was much different to the power grab that the Tyne family had made by marrying their inheriting son to the inheriting daughter of Kris. 
+
+As Orin had said, she would be best to play it ignorant of current affairs, until she had a better understanding of the mood of those around her.
+
+Mary seemed to imbue the event with some sort of otherworldly beauty, as though she was unable to fully express it in words.
+
+"Of course, I was only a girl when it happened. It was about six years ago now. Anyway, he is probably going to be away for the rest of the summer. Which means that the keep will be quite a lot quieter."
+
+"Oh?", Emlyn asked inquisitvely.
+
+"Well, he has taken a good number of his best lords and each of them took a significant number of their personal guards. So there are far fewer men in the castle than we would usually have at this time of year. 
+
+"Even in winter we normally have more people here. Less work for me to do, though I am sure they will find something for me to do."
+
+Bored...
+
+---
+
+Arrival, meeting people, they split up. Orin talks to Lord Tosca, Emlyn meets Mary.
+
+The previous spy, Derrik, was a minor clerk in the treasury. Emlyn and Orin are here to retrieve any of the notes that he left behind and return them to Verris.
+
+This will require them to live for an extended amount of time in Rens trying to find the books that could not be found by the inquisitors of Kris.
+
+Why do they have a chance of finding something that no one else could? Because the previous spy and Orin were rivals during their early days. No one knows him better, how he thinks, what he does, where he hides.
+
+Step 1. Blend in absolutely.
+Step 2. Find ways of being able to move around the castle undetected.
+Step 3. Find a way to get data about Derrik
+     - Perhaps his personal effects were locked away?
+     - Perhaps a key with an unopened lock?
+     - Perhaps a set of ciphers that are unbroken?
+Step 4. FInd the stash that Derrick left
+Step 5. Follow his clues, which eventually lead to the mint
+
+Subplots: Mary
+Daughter 1: Is being quite rebelious at the moment, snekaing out at night. Emlyn is on the roof one night (???), and sees her sneaking out of her room into town. Follows her, she runs into trouble?
+
+---
+
+Long line of succession
+  |
+King of Kris - 60
+  |
+His daughter, the princess - 30 - Alex Tyne
+
+Ben Tosca - 65
+  |-------------------|
+Robert Tosca - 34   Edward Tosca - 40
+  |                   |----------------|
+James Tosca - 5     Daughter 1 - 11  Daughter 2 - 8
+ 
+
 
 
 Random.
