@@ -387,9 +387,9 @@ A loud laugh went up from the table, and Emlyn quickly turned to ask Mary who Pr
 
 "Prince Alex?" Mary asked increulously. "Wow, you must have come far if you don't know who Prince Alex Tyne is."
 
-Mary's unspoken question hung in the air, but when Emlyn didn't answer it Mary continued. "Prince Alex Tyne is eldest son of the richest family in Kris. After the Royal Monsent line itself, of course."
+Mary's unspoken question hung in the air, but when Emlyn didn't answer it Mary continued. "Prince Alex Tyne is eldest son of the richest family in Kris. After the Royal Anders line itself, of course."
 
-Mary went on to describe Alex Tyne's wedding to Catherine Monsent. The description that Mary gave was much different to the power grab that the Tyne family had made by marrying their inheriting son to the inheriting daughter of Kris. 
+Mary went on to describe Alex Tyne's wedding to Catherine Anders. The description that Mary gave was much different to the power grab that the Tyne family had made by marrying their inheriting son to the inheriting daughter of Kris. 
 
 As Orin had said, she would be best to play it ignorant of current affairs, until she had a better understanding of the mood of those around her.
 
@@ -403,8 +403,59 @@ Mary seemed to imbue the event with some sort of otherworldly beauty, as though 
 
 "Even in winter we normally have more people here. Less work for me to do, though I am sure they will find something for me to do."
 
-Bored...
+"Indeed, well enjoy it while you can", Emlyn said, as she cleared the last morsels of food from her plate.
 
+"I will do. Speaking of which, it is nearly time for me to get back to work.", Mary replied, as she rose from her seat. "The nobles will be making their way to dinner, and I need to go and restock their fires while they are out of their rooms."
+
+"Oh, take me with you!", Emlyn exclaimed, grabbing Mary by the arm with an excited look on her face. 
+
+Mary's face fell, momentarily and just as she was about to reply Emlyn interrupted saying,  "I left the door of my room open, and I bet it would be way faster to use the servant entrance than head back the way I came!"
+
+"It'll be dark! And dusty, you will get your clothes all dirty!"
+
+"I don't mind!", Emlyn said, trying her best to sound too excited to give in.
+
+"Of course you don't! I am the one who is going to have to wash them!", Rosie said, with a mock offence, both of them breaking out in huge grins.
+
+Mary looked both ways before, looking out for any potential witnesses to their crime before whispering, "Okay, but be quiet about it."
+
+She beckoned for Emlyn to follow her as they left the dining hall, heading down the labyrinthian halls that made up the servants passages. 
+
+Mary stopped along the way to light a candle and pick up a heavy pack of firewood, which she slung over her shoulder with surprising ease, before continuing on way.
+
+With a final glance around, and after confirming that the coast was clear, Mary opened a small door and walked into the low stone corridor that provided the means by which the servants were able to travel unseen by those above their station.
+
+Emlyn's mind reeled as she tried to map out the routes were taking, wondering how far she had traveled and how far she would have to go. 
+
+They were hardly the dark catacombs that Mary had made Emlyn suspect she would be subjected to. The roof was low, the path narrow and the light from their candle barely lit their path. But the walls were made cobweb free and the floor had clearly been cleaned recently.
+
+Left, right, straight on through the junction, left…
+
+Emlyn's path back to her room, was significantly longer than it had taken her to reach the dining hall he first time. But Emlyn suspected that without having to walk with a heavy stack of wood, she could probably make pretty good time.
+
+But beyond that, Emlyn marvelled at the massive advantage this route would provide her. The ability to travel between rooms without being seen by the eyes of the wary guards would be a massive advantage when it came time for her to start finding out the secrets hidden within these walls.
+
+Of course, she would have to make sure that she wasn't spotted wandering these halls alone. Rumors among the servants of Master Tomlin's apprentice wandering around the servants halls late at night wouldn't do them any favours.
+
+"Here we are", Mary announced, pushing on the door leading into Emlyn's room. Mary dropped the bundle of wood to floor with a crash and Emlyn followed her in.
+
+"There we go, barely a mark", Emlyn replied, dusting off her dress automatically.
+
+"That's a relief", Mary replied as she heaved the wood back onto her shoulder as she crossed the threshold into Orin's room and began stacking some of the wood next to the fire, and throwing a couple of the larger logs into the hearth.
+
+"My master still isn't back", Emlyn said quietly.
+
+"No, I suspect that he will likely, stumble in sometime before dawn", Mary replied, as she straightened up, making sure everything remained clean.
+
+"That doesn't seem like Derin at all", Emlyn said. "I can't imagine ever seeing him drunk"
+
+"It  is very difficult to turn down a drink from Lord Tosca", Mary said non-comitally. "I must be off now, I have many more rooms to get to"
+
+"Thanks for everying", Emlyn replied as Mary made her way back to the servants door.
+
+"That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
+
+Bored...
 ---
 
 Arrival, meeting people, they split up. Orin talks to Lord Tosca, Emlyn meets Mary.
