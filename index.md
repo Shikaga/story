@@ -177,7 +177,7 @@ With a big smile and hand outstretched, the captain descended down the narrow ga
 
 And with the formalities concluded, it was time for them to depart.
 
-0.
+2.
 ---
 
 The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
@@ -194,12 +194,13 @@ Of course Emlyn knew all of this. She was perfectly practised in all the customs
 
 But it was important that they be heard to be concerned. There was a good chance
 
-Bored...
-
----
+* FILL IN STUFF HERE *
 
 Orin is introducing himself or whatever. Orin orders her to go to his room and prepare everything for him, giving him time to talk business with their landlord/employer.
 
+---
+
+3.
 ---
 
 "This way mi'lady", the maid instructed, indicating for Emlyn to follow. They had stepped into the beautifully decorated hallways of the back quarters, where the honored servants and minor nobles rooms where located. 
@@ -266,7 +267,7 @@ Instead, she did exactly as a young apprentice should, and ensured that her mast
 
 And when her master returned, she would speak to him as befitted someone of her station, with respect and humility. And to all the world they would seem like nothing more than exactly what they claimed to be.
 
-X.
+4.
 ---
 
 "You come very highly recommended among the Guild of Scribes", Lord Edward Tosca ventured as Orin let himself drop into a comfortable leather chair.
@@ -336,7 +337,7 @@ Either way, Orin liked having options. Even a bad choice was better than no choi
 "Of course. I am sure we will appreciate your hospitality greatly Sir"
 
 
-X.
+5.
 ---
 
 Emlyn wandered the long twisting corridors, asking the occasional guard for directions before finally coming to her destination.
