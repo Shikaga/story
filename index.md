@@ -190,7 +190,7 @@ But now she was suddenly thrust into a very different place indeed. Though all c
 
 "Now remember Rosie", Orin said, disturbing Emlyn from her trance, "when me meet Lord Kepler, you need to present yourself with perfect propriety. Curtsy deeply, don't talk to him unless he asks you a question directly. Accept any food or drink that he offers. Basically just be a perfect lady."
 
-Of course Emlyn knew all of this. She was perfectly practicesed in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
+Of course Emlyn knew all of this. She was perfectly practised in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
 
 But it was important that they be heard to be concerned. There was a good chance
 
@@ -340,7 +340,7 @@ Either way, Orin liked having options. Even a bad choice was better than no choi
 X.
 ---
 
-Clandestine meeting
+Clandestine meeting with the Captain of the Guard and company. They are plotting to overthrow the king or something...
 
 X.
 ---
@@ -455,73 +455,25 @@ Of course, she would have to make sure that she wasn't spotted wandering these h
 
 "That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
 
-Bored...
----
-
-Arrival, meeting people, they split up. Orin talks to Lord Tosca, Emlyn meets Mary.
-
-The previous spy, Derrik, was a minor clerk in the treasury. Emlyn and Orin are here to retrieve any of the notes that he left behind and return them to Verris.
-
-This will require them to live for an extended amount of time in Rens trying to find the books that could not be found by the inquisitors of Kris.
-
-Why do they have a chance of finding something that no one else could? Because the previous spy and Orin were rivals during their early days. No one knows him better, how he thinks, what he does, where he hides.
-
-Step 1. Blend in absolutely.
-Step 2. Find ways of being able to move around the castle undetected.
-Step 3. Find a way to get data about Derrik
-     - Perhaps his personal effects were locked away?
-     - Perhaps a key with an unopened lock?
-     - Perhaps a set of ciphers that are unbroken?
-Step 4. FInd the stash that Derrick left
-Step 5. Follow his clues, which eventually lead to the mint
-
-Subplots: Mary
-Daughter 1: Is being quite rebelious at the moment, snekaing out at night. Emlyn is on the roof one night (???), and sees her sneaking out of her room into town. Follows her, she runs into trouble?
-
----
-
-Long line of succession
-  |
-King of Kris - 60
-  |
-His daughter, the princess - 30 - Alex Tyne
-
-Ben Tosca - 65
-  |-------------------|
-Robert Tosca - 34   Edward Tosca - 40
-  |                   |----------------|
-James Tosca - 5     Daughter 1 - 11  Daughter 2 - 8
- 
+Bored…
 
 
 
-Random.
----
 
-Steadily, Emlyn and Orin made their way down the steep gangway and alighted on the harbour wall of Rens. 
 
-Orin struck his way through the throng on his way to find a stagecoach to take them further on their journey. 
 
-Plot Guideline
----
 
-Orin and Emlyn find their way to the Royal Keep, where they are working for some minor noble doing translations, scribing, perhaps managing books etc. 
 
-At some point here, Emlyn is on a errand for Orin, or perhaps just dinner in the servants quarters, anyway she meets Robert, who is totally different character now, anyway they strike up a rapport, which will continue throughout the book.
 
-We also meet the Princess at this point, who is cool. We like her, she has her own stuff going on. 
 
-At this point we start seeing information from he unbreakables point of view. They talk about actually needing to assasinate the king, because he refuses to go to war with Verris, they have been allies for a long time now. But he is wrong, something must be one. Also this is a good juncture to address why they are having issues with the Scryers Guild. Some kind of interpolitical thing. Specifically, it would be of great benefit for them to get rid of Marcus
 
-After forshadowing the problem with the Scryers, we cut to Marcus doing his thing far from home.
 
-Orin tracks down some clues about what happened to the previous spy. they investigate, find one of his safehouses and find some encrypted documents. This is one of the first big reveals from the plot, and gives our characters some motivation on where to go from here.
 
-Some slowdown comes after this, just them living out their lives, some time to work with Emlyn and Roberts relationship. Orin disapproving, fatherly like, typical stuff. When suddenly...
 
-Plot event! Emlyn discovers that it was actually a Verrisian the whoel time who was trying to precipitate war. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
 
-Turns out, it was at the Princesses orders that her father was to be killed. She was doing it because, the danger that Verris posed was too great.
+
+
+
 
 
 
@@ -1597,3 +1549,67 @@ Orin sighed deeply. "I suspect that there are going to be a lot of difficult que
 "No. She is cold, and sharp as steel. I need her with every fibre of my being. But I couldn't share her with you. She holds me jelously to her."
 
 Emlyn stuck her arms around Orin, and he hugged her tighter as they finally headed for home.
+
+
+
+
+Plot Guideline
+---
+
+Orin and Emlyn find their way to the Royal Keep, where they are working for some minor noble doing translations, scribing, perhaps managing books etc. 
+
+At some point here, Emlyn is on a errand for Orin, or perhaps just dinner in the servants quarters, anyway she meets Robert, who is totally different character now, anyway they strike up a rapport, which will continue throughout the book.
+
+We also meet the Princess at this point, who is cool. We like her, she has her own stuff going on. 
+
+At this point we start seeing information from he unbreakables point of view. 
+
+At some point soon there is a talk between THe Unbreakables, The Captain of the Guard and a shadowy plot device (read: Darth Sideous) talk about actually needing to assasinate the king, because he refuses to go to war with Verris, they have been allies for a long time now. But he is wrong, something must be done. 
+
+Also this is a good juncture to address why they are having issues with the Scryers Guild. Some kind of interpolitical thing. Specifically, it would be of great benefit for them to get rid of Marcus
+
+After forshadowing the problem with the Scryers, we cut to Marcus doing his thing far from home. They are on some kind of mission to do with  catching a rogue serial killer planet drinker. We will cut between them for a while as the case progresses. Not sure whether they catch him or not before they get recalled to Kris.
+
+Orin tracks down some clues about what happened to the previous spy. they investigate, find one of his safehouses and find some encrypted documents. This is one of the first big reveals from the plot, and gives our characters some motivation on where to go from here.
+
+Some slowdown comes after this, just them living out their lives, some time to work with Emlyn and Roberts relationship. Orin disapproving, fatherly like, typical stuff. When suddenly...
+
+Plot event! Emlyn discovers that it was actually a Verrisian the whoel time who was trying to precipitate war. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
+
+Turns out, it was at the Princesses orders that her father was to be killed. She was doing it because, the danger that Verris posed was too great!!!
+
+---
+
+Arrival, meeting people, they split up. Orin talks to Lord Tosca, Emlyn meets Mary.
+
+The previous spy, Derrik, was a minor clerk in the treasury. Emlyn and Orin are here to retrieve any of the notes that he left behind and return them to Verris.
+
+This will require them to live for an extended amount of time in Rens trying to find the books that could not be found by the inquisitors of Kris.
+
+Why do they have a chance of finding something that no one else could? Because the previous spy and Orin were rivals during their early days. No one knows him better, how he thinks, what he does, where he hides.
+
+Step 1. Blend in absolutely.
+Step 2. Find ways of being able to move around the castle undetected.
+Step 3. Find a way to get data about Derrik
+     - Perhaps his personal effects were locked away?
+     - Perhaps a key with an unopened lock?
+     - Perhaps a set of ciphers that are unbroken?
+Step 4. FInd the stash that Derrick left
+Step 5. Follow his clues, which eventually lead to the mint
+
+Subplots: Mary?
+Daughter 1: Is being quite rebelious at the moment, snekaing out at night. Emlyn is on the roof one night (???), and sees her sneaking out of her room into town. Follows her, she runs into trouble?
+
+---
+
+Long line of succession
+  |
+King of Kris - 60
+  |
+His daughter, the princess - 30 - Alex Tyne
+
+Ben Tosca - 65
+  |-------------------|
+Robert Tosca - 34   Edward Tosca - 40
+  |                   |----------------|
+James Tosca - 5     Daughter 1 - 11  Daughter 2 - 8
