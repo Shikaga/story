@@ -192,11 +192,49 @@ But now she was suddenly thrust into a very different place indeed. Though all c
 
 Of course Emlyn knew all of this. She was perfectly practised in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
 
-But it was important that they be heard to be concerned. There was a good chance
+The persona that she had painstakingly built around herself would tested to the limit as she entered the swirling whirlpool of court life. While Orin and she were posing as professional tutors, there would many rules and traditional that she would have to observe. In the Royal Keep etiquette and formality were more binding than law, and with stronger penalties.
 
-* FILL IN STUFF HERE *
+The cry of soldiers rang out as they passed under the heavy gates of a massive guard tower. Emlyn looked casually out the window as they passed a veritable garrison of saluting soldiers in their bright blue uniforms. 
 
-Orin is introducing himself or whatever. Orin orders her to go to his room and prepare everything for him, giving him time to talk business with their landlord/employer.
+The carriage rolled to a stop in the middle of a well swept stone courtyard. The door swung open and a tall valet threw out his hand to assist Emlyn's descent.
+
+Orin alighted without much fuss, and presented his official summons to the nearest servant, who quickly beckoned Orin to follow him. 
+
+Emlyn fell in behind them as they climbed the steps towards one of the great stone arches theta led into keep. Dozens of soldiers stood by, ready to deal with any disturbance at a moments notice. Their eye's cut into Emlyn as she walked, and she fought to keep her anxiety down as she entered. 
+
+Every terror of possibility ran through their mind. If they had already been compromised or someone suspected them of being spies, there would be no way for them to escape now. Well, at least not for Orin, Emlyn might have a chance.
+
+Her heart hammered in her chest with every step that she took, but as crossed the marble floor of the entrance hall and were directed down a beautiful hallways, she started to relax.
+
+"In here, Sir", the footman said, throwing wide the double doors of small gallery into which they entered. 
+
+"Please sit", he continued, indicating a number of comfortable chairs and couches in the middle of the room.
+
+"Will you require anything?", the footman asked.
+
+"No. Thank you", Orin replied.
+
+"Lord Tosca will be with you shortly", the footman replied as he withdrew from the room.
+
+As the doors closed behind them, Emlyn fell into one of the chairs. Her hand ran along the beautifully carved wood onto the painstakingly covered velvet cushioning. Orin sat down in the chair next to her.
+
+A few minutes passed as they sat in silence, Emlyn's eyes darting around, staring at the different painting and ornaments upon the wall, double checking all the furnishings in the room. Orin's face remained cool and collected as he stared at the door in front of them.
+
+Just as Emlyn was getting restless, she heard foot steps outside, and with a creak the the doors opposite the ones they entered opened smoothly. A valet entered the room, followed by a tall, perfectly groomed, immaculately dressed man.
+
+"Lord Edward Tosca", the valet announced in a practised intonation, and Orin stood up from his chair, Emlyn following his lead.
+
+"Derin Tomlin, sir", Orin replied. "And my assistant, Rosie Garratt", he said indicating to Emlyn as she curtsied.
+
+"Wonderful to meet you both", Lord Tosca said, a wide smile breaking across his face. He strode forward regally, his short coat tails swinging slightly with his movement, his arm outstretched for a handshake.
+
+"You must be weary from your travels", he inquired as Orin and then Emlyn shook his hand. 
+
+"I am alright, but I think that Rosie would like a chance to rest", Orin replied.
+
+"Of course, of course", Lord Tosca replied, waving his valet over. "Please, make sure that Mistress Rosie is shown to her rooms".
+
+"This way, Mistress", the valet said smoothly, and strove towards the doors. With a quick glance towards Orin, she followed after him.
 
 ---
 
