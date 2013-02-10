@@ -488,18 +488,41 @@ Of course, she would have to make sure that she wasn't spotted wandering these h
 
 "That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
 
-
-
-
-
-
-
-
-
 X.
 ---
 
-Clandestine meeting with the Captain of the Guard and Unbreakables. They are plotting to overthrow the king or something...
+The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to dangerous to the realm to continue?
+
+During the majority of his career he had looked upon the Guild of Royal Assassins, with disdain. While they undoubtably had their uses, her would much rather deal with the dangers directly, a sword in hand and with the law as his shield, rather than with a poisoned dagger in the dark.
+
+And yet here he was. For the good of the realm he would seek out those which he detested, to follow the only course that was left to him and those he protected.
+
+"Well, I have to say, I never thought that you would be coming to me with a plot to assassinate the King, Captain", the Unbreakable said, the eveil grin evident on his face.
+
+"Moreover", he continued, "I never thought that I would actually be considering it.
+
+"And yet here we are", the Captain replied.
+
+"Indeed"
+
+"But whatever you do, it must be absolutely unconnected to me, or anyone member of the Royal Court. It must be so water tight that even I believe that it was a genuine assassination"
+
+"I assure you, it will be"
+
+In the darkness, the Captain watched as the nameless assassin known only as Seven Hundred and Sixty Eight drew a wicked blade from within his robes with cruel efficiency. His mind reeled as he prepared himself for an attack, but his body did not even flinch.
+
+"In older times, one would seal a bond like this with blood", the Unbreakable continued, hovering the weapon openly over his outstretched left hand.
+
+The Captain, continued to stare, directly into his co-conspirator's eyes. He plumbed the depths for the last remnants of humanity, but came up short. He continued to breath in and out and his heart continued to beat, but beyond that the man in front of him was no more than a corpse as far as The Captain could determine.
+
+For a space of three breaths the dagger continued to hover between them, a threat only thinly veiled behind a question. The Captain, steeled himself, holding his hand by it's side, as the anxiety grew in him, greater by every second.
+
+Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
+
+"An old tradition. Probably best forgotten", he said said. "I must be about my duties"
+
+"And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place.
+
 
 X.
 ---
@@ -1188,7 +1211,7 @@ The doors opened at he stepped through to see The Captain sat at his desk, fixin
 
 "Sit", The Captain directed, waving his hand to the chair in front of his desk. Marcus relaxed his posture and sat down as the doors behind him closed with small click. Once he had sat down The Captain continued.
 
-"There are Drinkers in City. And they are almost certainly trying to assasinate the King". Marcus' face was locked in a neutral expression, but a thousand thoughts flashed through his mind at once. Who, what, why? The Captain rummaged through his draw and pulled out a red leather folder embossed with Royal Seal of Kris.
+"There are Drinkers in City. And they are almost certainly trying to assassinate the King". Marcus' face was locked in a neutral expression, but a thousand thoughts flashed through his mind at once. Who, what, why? The Captain rummaged through his draw and pulled out a red leather folder embossed with Royal Seal of Kris.
 
 "This is everything we know so far", The Captain said sliding folder to Marcus who promptly flipped it open.
 
@@ -1196,7 +1219,7 @@ The doors opened at he stepped through to see The Captain sat at his desk, fixin
 
 "Yes. Well, congratualations, this is now your problem. We need you to find them and bring them in alive, assuming that they are still in Rens". The Captain started filling out some papers on his desks. His pen dashed across the page in flowing script, filling out the paperwork that kept the world turning.
 
-"You will have access to whatever resources you think that you need", The Captain said, handing one of the papers to the Colonel and placing it's duplicate in his own folder. "But this must remain absolutely secret. I want just you and your apprentice to bring them in. No troops. Ans remember, under no circumstances must these terrorists be killed during capture. It is imperative that we capture them alive. The girl especially. I expect your plan on my desk by ninth bell tomorrow."
+"You will have access to whatever resources you think that you need", The Captain said, handing one of the papers to the Colonel and placing it's duplicate in his own folder. "But this must remain absolutely secret. I want just you and your apprentice to bring them in. No troops. And remember, under no circumstances must these terrorists be killed during capture. It is imperative that we capture them alive. The girl especially. I expect your plan on my desk by ninth bell tomorrow."
 
 The Captain gave a dismissive gesture and Marcus stood up, saluted again and left by the same door.
 
@@ -1220,17 +1243,17 @@ She took her last free steps and entered the hearse. The door slammed behind her
 
 "Hey, no using real names at clandestine meetings, Tobias.", Loron replied jestingly, as he pulled a pipe from his coat pocket and started packing it with tobacco. 
 
-"No one knows that name anymore. Tobias Kimin died a long time ago in unmarked grave in a land far away", Mark responded, his tone short.
+"No one knows that name anymore", Mark responded, his tone short. "Tobias Kimin died a long time ago, in unmarked grave in a land far away", 
 
-"Of course, my mistake", Loron acknwoledged, pulling a steel rod from his tobacco puching and stricking it sharply against the top of his pipe. A fwe seconds later the dark glow of burning tobacco illuminated his face and he pulled on the pipe deeply, illuminating the pair of them.
+"Of course, my mistake", Loron acknwoledged, pulling a steel rod from his tobacco pouch and striking it sharply against the top of his pipe. A few seconds later the dark glow of burning tobacco illuminated his face and he pulled on the pipe deeply, illuminating the pair of them.
 
 "So", Loron continued, "what emergency brings you to call on a simpleton like me to meet you so urgently?"
 
 "Well, I was hoping that you could tell me. What on earth is going on in this city?"
 
-"Lots of things, I think you may need to be more specific. There is of course the harvest festival which there have been plenty of preperations for. Or perhaps, you are talking about the Mayor's daughters wedding, which was the talk of the town last month. Or are you talking about the ten Planet Drinkers who are roaming around the city, trying to assasinate the king".
+"Lots of things, I think you may need to be more specific. There is of course the harvest festival which there have been plenty of preparations for. Or perhaps, you are talking about the Mayor's daughters wedding, which was the talk of the town last month. Or are you talking about the ten Planet Drinkers who are roaming around the city, trying to assassinate the king".
 
-It appeared as though rumours were flying though the ranks. It appeared as though one Drinker had transformed into an army through retellings. According some the inside of the Royal Mint had been leveled by an eight foot giant, in it's destructive rage. In other tales the Planet Drinker took the form a beautiful seductress who would enslave you with just a stare. Suffice it to say, any story that was even remotely truthful was more likely coincidence than reasoned thought.
+It appeared as though rumours were flying though the ranks. One Drinker had transformed into an army through retellings. According some the inside of the Royal Mint had been leveled by an eight foot giant, in it's destructive rage. In other tales the Planet Drinker took the form a beautiful seductress who would enslave you with just a stare. Suffice it to say, any story that was even remotely truthful was more likely coincidence than reasoned thought.
 
 "And what do you think?", Marcus inquired.
 
@@ -1240,7 +1263,7 @@ It appeared as though rumours were flying though the ranks. It appeared as thoug
 
 "Who can know. I am guessing that you know more than me."
 
-"The Captain thinks they're assasins."
+"The Captain thinks they're assassins."
 
 "Yes, well he would. It's his job to be paranoid", Loron conceded.
 
