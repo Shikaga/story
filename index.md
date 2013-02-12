@@ -488,7 +488,7 @@ Of course, she would have to make sure that she wasn't spotted wandering these h
 
 "That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
 
-X.
+6.
 ---
 
 The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to dangerous to the realm to continue?
@@ -523,11 +523,70 @@ Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
 
 "And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place.
 
+7.
+---
+
+For the second night in a row, Emlyn felt herself being shaken roughly awake. The smell of alcohol hit her face in a thick miasma.
+
+"Are you drunk, old man?", she inquired, throwing her her legs over the side of the bed and rubbing her eyes with her palms as she tried to gain her bearings.
+
+"Hardly, but don't tell anyone, Eddy could drink the best of them under the table", Orin replied in a low whisper. "Event move without us, Rosie. Get dressed. And it's cold out tonight"
+
+Emlyn suddenly found herself wide awake. She went to open her mouth in question, but closed it again a moment later and hopped out of bed.
+
+As Orin slipped out quietly, she drew open her closet and slipped on her warm garments, covering her body from head to tow in fine wool. 
+
+With the elements dealt with, she threw one of her trunks onto her bed, and with a bit of fumbling, coaxed the secret lock open. A panel at the bottom of the trunk popped open, and Emlyn reached in and pulled out a smooth dark, piece of cloth.
+
+She threw the coat her shoulders, the dark material fitting her perfectly. She pulled the hood over head, where it obscured her face from the light, but allowed her to turn her neck and head without obstruction.
+
+Reaching down into the trunk again, Emlyn pulled out a pair of gloves a thick belt, which she fastened around her stomach like a corset.
+
+Orin, peeked his head in, and with a nod, she followed him.
+
+Orin was dress head to toe in black. His coat hung tightly around him, dropping to the ground, stopping just short of his leather shoes, which were bound in cloth to dampen the sound of his foot prints. Black cloth was likewise wrapped around his head, obscuring his face, with his two eyes peeking out into the darkness.
+
+"It appears that events move ahead without us", Orin whispered to Emlyn, offering her a black shroud which she started to wrap around her head, making sure to keep her hair out of her face.
+
+"I have good reason to believe that our predecessor still lives", Orin announced. "But we must act fast if we are going to capitalise on this turn of events"
+
+Emlyn's mind spun. When they had left Verris they were certain that their predecessor had been killed. The fact that he was still alive only brought more questions than answers. The possibility of a trap was high. Any information that Orin had been able to glean could have been left out intentionally for him to find, just in case he was a spy.
+
+But Orin knew this, and if he decided that it was worth the risk, then Emlyn wouldn't argue. No spy got to Orin's age by taking unnecessary risks.
+
+"So what is the plan?", Emlyn asked?
+
+"We go to him. Now."
+
+"And if we are observed?"
+
+"Then we are already dead, and we have nothing to lose"
+
+Emlyn nodded, as she wrapped the last piece of cloth around her hands.
+
+"Meranis is just dawning", she whispered, feeling the warm rays rising above the walls of the keep.
+
+"There are many Scryers, be careful not to be seen".
+
+"I know", Elmlyn replied.
+
 
 X.
 ---
 
-Emlyn and Orin get started on their "job", ingratiating themselves into society, tutoring the girls blah blah
+"I think that you will find that my daughters are a truly wonderful pair", Lady Tosca informed them, pacing around the study in which they were sitting. She flitted between the globes and maps, the extensive library and the tools of geometry stacked on shelves throughout the room.
+
+Emlyn had never seen a such a beautiful room of learning in all her life. It was more of a  Library of Everything than a class room. 
+
+The sheer size flummoxed Emlyn. There must have been desks for thirty or more students, but the majority of the space was taken up by large variety of subject areas. Maps and Glboes in one area, portraits of kings and queens, and their accomplishments in another. There was a massive collection of stuffed fauna and pressed fauna in one corner and for those missing from the collection there were endless folders of painstakingly prepared illustrations.
+
+A massive window let in the morning light, which flooded over a massive table, used in the illustration of historic battles. Hundreds of little figures, stuck in a state of perpetual battle. The Battle of The Pine Soldiers, Emlyn spotted on the page of the book illustrating the battle in progress.
+
+"There is no spite or malice in them", Lady Tosca continued, interrupting Emlyn's thoughts. "And you will find them ready to learn"
+
+"I am sure we will", Orin replied.
+
+Bored… Gonna add some action!
 
 X.
 ---
