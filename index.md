@@ -570,6 +570,50 @@ Emlyn nodded, as she wrapped the last piece of cloth around her hands.
 
 "I know", Elmlyn replied.
 
+Orin drew the shutters of the window open and stared down into the courtyard below. One soldier was patrolling on his rounds, but his eyes never flew to the rafters where Orin and Emlyn would be making their move.
+
+With a big step Orin positioned himself onto the windowsill and craned his neck to look at roof four floors above him, hooked rope in hand. With a big breath, Orin planted his left foot on the windowsill, and with his left hand gripping the frame tightly, he threw his body out over the cavernous expanse below.
+
+With nothing but air below him, Orin started to hook in a short circle, slowly accumulating speed until the hook started to whistle and he released it in a  flying arc towards the roof far above him.
+
+The hook sailed through the night air, pulling the rapidly uncoiling rope behind it. For a few seconds the rope continued to fly, but the inexorable pull of gravity could not be denied, and hook eventually slowed to a standstill and started to fall.
+
+With a soft clink the hook fell upon the roof, and their hearts caught in their throats and they listened out for any cry of alarm or disturbance. But the cool night air remained quiet, and the guard below them showed no sign of concern in the pale moonlight.
+
+Slowly, Orin started to pull on he rope and after a few hands, the rope caught against the  crenelations above them.
+
+With a series of jerks, Orin tested the rope, but it held and with an outstretched arm he offered the rope to Emlyn. She took it in her hand, and after running it through a series of metal loops on her belt, she leapt over abyss.
+
+The rough stone wall provided plenty of foot holds and Emlyn started to ascend. 
+
+Her fingers caught the wall deftly and her back strained as she pulled herself up brick by brick, pulling the rope through her belt every few steps, before continuing up.
+
+Emlyn's training had whipped her body into athletic form, and she scaled the wall quickly without loosing breath.
+
+Finally hitting the top of the building she rolled over the crenelations and, after checking the hook was still stuck firm, she gave it a series of jerks to inform Orin to follow her.
+
+The rope went taught as Orin began his ascent, and a few moments he threw his arm over the crenellations. Emlyn caught his outstretch hand and pulled him up.
+
+After a brief pause to wrap the rope around his waist, Orin signalled to Emlyn that he was ready to proceed and began walk gingerly along the edge of the roof, with Emlyn in tow.
+
+Under the clear night sky Emlyn could see full majesty of Kris. The city flowed from the palace, the buildings covering ever inch of the city right down the ocean upon which the small fishing boats could be seen rocking on the waves.
+
+In the darkness the city seemed to take up a romantic air. The lights from the lamps and fires within the gave a warm homely feel to a what would be turning into a chaotic miasma of business in just a few hours.
+
+The a cool sea breeze blew inland, carrying the smell of brine, clearing Emlyn's head and bringing on a certain feeling of nostalgia for days long past.
+
+With a sudden halt Orin threw up his arm, indicating for Emlyn to stop. With a intense look Orin pointed down to the courtyard.
+
+Emlyn's breath caught in her throat.
+
+8.
+---
+
+!!!
+
+
+
+<!--- 
 
 X.
 ---
@@ -587,6 +631,8 @@ A massive window let in the morning light, which flooded over a massive table, u
 "I am sure we will", Orin replied.
 
 Bored… Gonna add some action!
+
+-->
 
 X.
 ---
@@ -633,7 +679,7 @@ X.
 
 They start trying to break the ciphers, and thinking about every way that they can possibly bring this flying dutchman of a mission to an end. Orin is having some serious doubts about the mission, but tries to hide them, but Emlyn can tell.
 
-Meanwhile, Emlyn meets Robert. Not really sure how deep into the relationship we want to get. Emlyn never forgets that the mission is her number one priority, but even so...
+Meanwhile, Emlyn meets Robert. Not really sure how deep into the relationship we want to get. Emlyn never forgets that the mission is her number one priority, but even so…
 
 X.
 ---
