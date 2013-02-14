@@ -194,6 +194,40 @@ Of course Emlyn knew all of this. She was perfectly practised in all the customs
 
 The persona that she had painstakingly built around herself would tested to the limit as she entered the swirling whirlpool of court life. While Orin and she were posing as professional tutors, there would many rules and traditional that she would have to observe. In the Royal Keep etiquette and formality were more binding than law, and with stronger penalties.
 
+Emlyn lay her head against the side of the carriage as it continue it's rocking journey up the bumpy street. She was exhausted after her night of heavy trembling and sour dreams. A small payment for an incredible gift.
+
+Emlyn could only just barely remember not having the powers of a Planet Drinker, most children manifested their power at a very young age. To her it came just as easily as walking and talking, just a thing that she did.
+
+For those around her, nothing had seemed odd at first, perhaps she was a little strong for a small, but hey, she just had a lot of fight in her.
+
+But when a four year old in the midst of a tantrum smashes the kitchen table into a mess of wood and splinters, there is no more denying the truth.
+
+Emlyn had been taken from her mother and brothers and trained in the ways of her gift.
+
+She learnt about all the ways in which the planets of the night sky radiated power that a fortunate few would be able to pull on. Strength, speed, far sight, the planets provided incredible powers for those precious few who were able to call on them.
+
+Meranis was a the planet of strength, and Emlyn's gift allowed her to call on it. As the planets made the meandering path across the sky, her gift would wax and wane, being it's strongest when the planet was at it's zenith and falling away to nothing when it crossed the horizon.
+
+The daily ebb and flow of Meranis' power was just another trial that Emlyn had become accustomed to. The heady intoxication that Meranis offered when it was directly above her on a clear day was equally matched by the incredible withdrawal she felt just before its dawn. 
+
+The twelve bells that rang between Meranis slipping below the horizon and it's reappearance the next day were the slowest Emlyn could imagine. When Meranis set, it was like holding one's breath. At first it wasn't so bad, just a little odd.
+
+After eight bells had rung out she was genuinely gasping for a proverbial breath. While it didn't affect her body in any noticeable way, cut still cut her mind like a blade.
+
+By the time the twelfth bell rung out signalling Meranis' reappearance, she had nearly given up, just in time for the satiating breeze of relief.
+
+But over time one can get used to any suffering. What had left her in agony in her childhood had shrunk to a small throbbing, which rested upon her body int he darkest hours. 
+
+But the previous few days had not been easy for her. A heavy sea fog had descended upon their ship, obscuring the sun and Meranis alike. At first the loss was simply an irritation, the feeling of an insect running lightly across ones arm. 
+
+After two days of only the briefest rays of Meranis breaking through the cloud, Emlyn felt positively rotten. A persistent throbbing headache beat upon her and her temperament was short.
+
+By the third day, Emlyn just tried to sleep her pain away. Upon awakening, Orin would try his best to get her to eat something, but she had lost all hunger, her energy sapped and a body wracked with chronic throbbing pain. After swallowing what she could she returned to bed and waited for sleep to relieve her pain.
+
+And just when she thought all was lost, the fog had lifted and Meranis had come shining through. Everything shifted into color, over-saturated and vibrant. The creaking of ropes and the fluttering of canvas, that had previously grated on Emlyn's exhausted mind, now seemed to sing of a beauty of the world. The setting sun reflecting off the small breaking waves now filled the world with a kaleidoscope of color and joy.
+
+Emlyn moved her face closer to the window of the carriage and felt the last rays of Meranis, fill her as it once again began to set.
+
 The cry of soldiers rang out as they passed under the heavy gates of a massive guard tower. Emlyn looked casually out the window as they passed a veritable garrison of saluting soldiers in their bright blue uniforms. 
 
 The carriage rolled to a stop in the middle of a well swept stone courtyard. The door swung open and a tall valet threw out his hand to assist Emlyn's descent.
