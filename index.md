@@ -194,15 +194,13 @@ Of course Emlyn knew all of this. She was perfectly practised in all the customs
 
 The persona that she had painstakingly built around herself would tested to the limit as she entered the swirling whirlpool of court life. While Orin and she were posing as professional tutors, there would many rules and traditional that she would have to observe. In the Royal Keep etiquette and formality were more binding than law, and with stronger penalties.
 
-Emlyn lay her head against the side of the carriage as it continue it's rocking journey up the bumpy street. She was exhausted after her night of heavy trembling and sour dreams. A small payment for an incredible gift.
+Emlyn lay her head against the side of the carriage as it continue it's rocking journey up the bumpy street. She was exhausted after her nights of heavy trembling and sour dreams. A small payment for an incredible gift.
 
 Emlyn could only just barely remember not having the powers of a Planet Drinker, most children manifested their power at a very young age. To her it came just as easily as walking and talking, just a thing that she did.
 
-For those around her, nothing had seemed odd at first, perhaps she was a little strong for a small, but hey, she just had a lot of fight in her.
+For those around her, nothing had seemed odd at first, perhaps she was a little strong for a small child, but hey, she just had a lot of fight in her. But when a four year old in the midst of a tantrum smashes the kitchen table into a mess of wood and splinters, there is no more denying the truth.
 
-But when a four year old in the midst of a tantrum smashes the kitchen table into a mess of wood and splinters, there is no more denying the truth.
-
-Emlyn had been taken from her mother and brothers and trained in the ways of her gift.
+Emlyn had been taken from her mother and brothers and trained in the ways of her gift. It had been the only way to protect both of them.
 
 She learnt about all the ways in which the planets of the night sky radiated power that a fortunate few would be able to pull on. Strength, speed, far sight, the planets provided incredible powers for those precious few who were able to call on them.
 
@@ -210,21 +208,21 @@ Meranis was a the planet of strength, and Emlyn's gift allowed her to call on it
 
 The daily ebb and flow of Meranis' power was just another trial that Emlyn had become accustomed to. The heady intoxication that Meranis offered when it was directly above her on a clear day was equally matched by the incredible withdrawal she felt just before its dawn. 
 
-The twelve bells that rang between Meranis slipping below the horizon and it's reappearance the next day were the slowest Emlyn could imagine. When Meranis set, it was like holding one's breath. At first it wasn't so bad, just a little odd.
+The twelve bells that rang between Meranis slipping below the horizon and it's reappearance the next day were the longest Emlyn could imagine. When Meranis set, it was like holding ones breath. At first it wasn't so bad, just a little odd.
 
-After eight bells had rung out she was genuinely gasping for a proverbial breath. While it didn't affect her body in any noticeable way, cut still cut her mind like a blade.
+After eight bells had rung out she was genuinely gasping for a proverbial breath. While it didn't affect her body in any noticeable way, the withdrawal cut her mind like a blade.
 
 By the time the twelfth bell rung out signalling Meranis' reappearance, she had nearly given up, just in time for the satiating breeze of relief.
 
-But over time one can get used to any suffering. What had left her in agony in her childhood had shrunk to a small throbbing, which rested upon her body int he darkest hours. 
+But over time one can get used to any amount of suffering. What had left her in agony in her childhood had shrunk to a small throbbing, which rested upon her body in the darkest hours. 
 
 But the previous few days had not been easy for her. A heavy sea fog had descended upon their ship, obscuring the sun and Meranis alike. At first the loss was simply an irritation, the feeling of an insect running lightly across ones arm. 
 
 After two days of only the briefest rays of Meranis breaking through the cloud, Emlyn felt positively rotten. A persistent throbbing headache beat upon her and her temperament was short.
 
-By the third day, Emlyn just tried to sleep her pain away. Upon awakening, Orin would try his best to get her to eat something, but she had lost all hunger, her energy sapped and a body wracked with chronic throbbing pain. After swallowing what she could she returned to bed and waited for sleep to relieve her pain.
+By the third day, Emlyn just tried to sleep her agonising hours away. Upon awakening, Orin would try his best to get her to eat something, but she had lost all appetite, her energy sapped and a body wracked with a chronic throbbing pain. After swallowing what little she could she returned to bed and waited for sleep to relieve her pain.
 
-And just when she thought all was lost, the fog had lifted and Meranis had come shining through. Everything shifted into color, over-saturated and vibrant. The creaking of ropes and the fluttering of canvas, that had previously grated on Emlyn's exhausted mind, now seemed to sing of a beauty of the world. The setting sun reflecting off the small breaking waves now filled the world with a kaleidoscope of color and joy.
+And just when she thought all was lost, the fog had lifted and Meranis had come shining through. Everything shifted into color, over-saturated and vibrant. The creaking of ropes and the fluttering of canvas, that had previously grated on Emlyn's exhausted mind, now seemed to sing of a beauty of the world and the setting sun reflecting off the small breaking waves now filled the world with a kaleidoscope of color.
 
 Emlyn moved her face closer to the window of the carriage and felt the last rays of Meranis, fill her as it once again began to set.
 
@@ -525,13 +523,13 @@ Of course, she would have to make sure that she wasn't spotted wandering these h
 6.
 ---
 
-The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to dangerous to the realm to continue?
+The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to "dangerous for the realm" to continue?
 
-During the majority of his career he had looked upon the Guild of Royal Assassins, with disdain. While they undoubtably had their uses, her would much rather deal with the dangers directly, a sword in hand and with the law as his shield, rather than with a poisoned dagger in the dark.
+During the majority of his career he had looked upon the Guild of Royal Assassins, with disdain. While they undoubtably had their uses, he would much rather deal with the dangers directly, a sword in hand and with the law as his shield, rather than with a poisoned dagger in the dark.
 
 And yet here he was. For the good of the realm he would seek out those which he detested, to follow the only course that was left to him and those he protected.
 
-"Well, I have to say, I never thought that you would be coming to me with a plot to assassinate the King, Captain", the Unbreakable said, the eveil grin evident on his face.
+"Well, I have to say, I never thought that you would be coming to me with a plot to assassinate the King, Captain", the Unbreakable said, the evil grin evident on his face.
 
 "Moreover", he continued, "I never thought that I would actually be considering it.
 
@@ -547,7 +545,7 @@ In the darkness, the Captain watched as the nameless assassin known only as Seve
 
 "In older times, one would seal a bond like this with blood", the Unbreakable continued, hovering the weapon openly over his outstretched left hand.
 
-The Captain, continued to stare, directly into his co-conspirator's eyes. He plumbed the depths for the last remnants of humanity, but came up short. He continued to breath in and out and his heart continued to beat, but beyond that the man in front of him was no more than a corpse as far as The Captain could determine.
+The Captain, continued to stare, directly into his co-conspirator's eyes. He plumbed their depths for the last remnants of humanity, but came up short. He continued to breath in and out and his heart continued to beat, but beyond that the man in front of him was no more than a corpse as far as The Captain could determine.
 
 For a space of three breaths the dagger continued to hover between them, a threat only thinly veiled behind a question. The Captain, steeled himself, holding his hand by it's side, as the anxiety grew in him, greater by every second.
 
@@ -555,16 +553,16 @@ Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
 
 "An old tradition. Probably best forgotten", he said said. "I must be about my duties"
 
-"And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place.
+"And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place, just barely stopping himself from sprinting away as fast as he could.
 
 7.
 ---
 
 For the second night in a row, Emlyn felt herself being shaken roughly awake. The smell of alcohol hit her face in a thick miasma.
 
-"Are you drunk, old man?", she inquired, throwing her her legs over the side of the bed and rubbing her eyes with her palms as she tried to gain her bearings.
+"Are you drunk, old man?", she inquired, throwing her legs over the side of the bed and rubbing her eyes with her palms as she tried to gain her bearings.
 
-"Hardly, but don't tell anyone, Eddy could drink the best of them under the table", Orin replied in a low whisper. "Event move without us, Rosie. Get dressed. And it's cold out tonight"
+"Hardly, but don't tell anyone, Eddy could drink the best of them under the table", Orin replied in a low whisper. "Events move without us, Rosie. Get dressed. And it's cold out tonight"
 
 Emlyn suddenly found herself wide awake. She went to open her mouth in question, but closed it again a moment later and hopped out of bed.
 
@@ -574,21 +572,23 @@ With the elements dealt with, she threw one of her trunks onto her bed, and with
 
 She threw the coat her shoulders, the dark material fitting her perfectly. She pulled the hood over head, where it obscured her face from the light, but allowed her to turn her neck and head without obstruction.
 
-Reaching down into the trunk again, Emlyn pulled out a pair of gloves a thick belt, which she fastened around her stomach like a corset.
+Reaching down into the trunk again, Emlyn pulled out a pair of gloves and a thick belt, which she fastened around her stomach like a corset.
 
 Orin, peeked his head in, and with a nod, she followed him.
 
 Orin was dress head to toe in black. His coat hung tightly around him, dropping to the ground, stopping just short of his leather shoes, which were bound in cloth to dampen the sound of his foot prints. Black cloth was likewise wrapped around his head, obscuring his face, with his two eyes peeking out into the darkness.
 
-"It appears that events move ahead without us", Orin whispered to Emlyn, offering her a black shroud which she started to wrap around her head, making sure to keep her hair out of her face.
+"It appears that we have been blessed with incredible fortune", Orin whispered to Emlyn, offering her a black shroud which she started to wrap around her head, making sure to keep her hair out of her face.
 
 "I have good reason to believe that our predecessor still lives", Orin announced. "But we must act fast if we are going to capitalise on this turn of events"
 
-Emlyn's mind spun. When they had left Verris they were certain that their predecessor had been killed. The fact that he was still alive only brought more questions than answers. The possibility of a trap was high. Any information that Orin had been able to glean could have been left out intentionally for him to find, just in case he was a spy.
+Emlyn's mind spun. 
+
+When they had left Verris they were certain that their predecessor had been killed. The fact that he was still alive only brought more questions than answers. The possibility of a trap was high. Any information that Orin had been able to glean could have been left out intentionally for him to find, just in case he was a spy.
 
 But Orin knew this, and if he decided that it was worth the risk, then Emlyn wouldn't argue. No spy got to Orin's age by taking unnecessary risks.
 
-"So what is the plan?", Emlyn asked?
+"So what is the plan?", Emlyn asked
 
 "We go to him. Now."
 
