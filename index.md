@@ -558,6 +558,124 @@ Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
 7.
 ---
 
+Emlyn woke early. She splashed her face with water and got dressed before esneaing into Orin room. Dawn had barely cracked and she didn't expect Orin to be up yet, but she saw him sitting by his desk, crouching over his books.
+
+"Good morning!", he said, swivelling in his chair to look at her over the top of his glasses.
+
+"It is indeed!", she replied brightly, "I can barely remember the last time I had a good night's sleep in a soft comfortable bed".
+
+"I can see that", he noted, but his small smile fell as he asked her, "And your headaches?"
+
+"All gone now, seems like I just needed a proper rest"
+
+"Excellent, we have a big day ahead of us", he replied. "I have already ordered our breakfast, it should be arriving shortly.
+
+Emlyn nodded, and Emlyn sank into one of the luxurious arm chairs that adorned the room as Orin started filling her in on the details that he had learned the night before.
+
+"And the girls ages?", Emlyn inquired.
+
+"11 and 8. The elder is named Catherine and the younger Isabel.", Orin answered. "And as I am sure that you know, Catherine is the heiress, so unless you want a powerful woman seeking retribution on her cruel tutor when she comes into her majority, I suggest you be nice to her"
+
+Emlyn smiled, just as a knock came at the door. Responding to Orin's summons a maid entered bearing a large tray of breakfast, which she laid out on one of the small parlour tables (is this a thing??) before withdrawing.
+
+"And did Lord Tosca drink you under the table last night?", Emlyn asked as she helped herself to a large plate of eggs, bacon and toasted bread covered in marmalade. "Some of the servants were quite worried for your wellbeing"
+
+Orin laughed heartily, "Well, I will give it to the man, he knows how to entertain guests. I suspect that he will be quite put out if I don't pretend to be at least a bit hung-over this morning."
+
+"Speaking of which…", Orin continued raising the coffee pot in question, with which he started pouring two cups on Emlyn's nod.
+
+"But he seems like a good man", Orin continued raising his mug to his lips. "He is clearly quite provincial in his upbringing, clearly very used to dealing with his servants and the day to day running of his land. Unlike most of the other nobles that we will meet here, I suspect."
+
+INSERT EVERNOTE HERE
+
+When they had finished off the last of their breakfast, Emlyn headed back to her room to change into her formal attire. She brushed her back into a strict ponytail, which she then pinned into a bun in why she thought was a formal "tutorish" look.
+
+She picked a dark grey dress to along with it, and after throwing it on returned to join Orin.
+
+"You ready?", he asked, dressed in his own robes of formal black. 
+
+Emlyn nodded, and they left to begin their masquerade.
+
+---
+
+
+"I think that you will find that my daughters are a truly wonderful pair", Lady Tosca informed them, pacing around the study in which they were sitting. She flitted between the globes and maps, the extensive library and the tools of geometry stacked on shelves throughout the room.
+
+Emlyn had never seen a such a beautiful room of learning in all her life. It was more of a  Library of Everything than a class room she thought.
+
+The sheer size flummoxed Emlyn. There must have been desks for thirty or more students, but the majority of the space was taken up by large variety of subject areas. Maps and Glboes in one area, portraits of kings and queens, and their accomplishments in another. There was a massive collection of stuffed fauna and pressed fauna in one corner and for those missing from the collection there were endless folders of painstakingly prepared illustrations.
+
+A massive window let in the morning light, which flooded over a massive table, used in the illustration of historic battles. Hundreds of little figures, stuck in a state of perpetual battle. The Battle of The Pine Soldiers, Emlyn spotted on the page of the book illustrating the battle in progress.
+
+"There is no spite or malice in them", Lady Tosca continued, interrupting Emlyn's thoughts. "And you will find them ready to learn"
+
+"I am sure we will", Orin replied.
+
+"As to the direction of their lessons, you will directing them primarily in history, geography, noble houses, languages and calligraphy", Lady Tosca informed them as she pushed a large ledger towards them. 
+
+"This is a record of all the lessons that they have undertaken so far, and their proficiency in them. You will of course keep it up to date, with your plan for a month in advance so that I mmay look over it and correct any misunderstandings"
+
+"Of course", Orin replied, as he opened the ledger to last entry highlighted by a thick ribbon running across the page.
+
+"Their previous tutor, left a plan for the next month", Lady Tosca continue indicating the pages of finely inked spidery letters.  "I expect you to follow them, after which I think you will have the freedom to choose your own lessons"
+
+"Excellent", Orin continued. Emlyn glanced at Orin for a split second before returning her  eyes to Lady Tosca.
+
+"Good, well, the girls will join you here at 11th bell", Lady Tosca informed them. "That should give you plenty of time to prepare your first lesson"
+
+"Thank you", Orin replied deferentially.
+
+"Excellent. Well I trust that my daughters are in good hands, I will send for you if I need anything further", and with that Margret Tosca left the room.
+
+"She seemed very sure of herself", Emlyn quietly whispered to Emlyn, as she pulled the ledger in front of her and started examining it's contents
+
+"No doubt just the eccentricities of a caring mother." Orin replied. "Lord Tosca told me that she might be a little earnest in her duties"
+
+"Well, I hope that it doesn't become a problem", Emlyn mused
+
+"Only time will tell. But either way it won't be affect our true purpose"
+
+Emlyn stood up from the table and started looking through the library shelves for the books mentioned in the next weeks lessons. Meanwhile, Orin started flipping back through the ledger examining their past lessons.
+
+"Oh this is interesting", he called out to Emlyn who had scaled a ladder to pick out a copy of 'Heridian History: A retrospective'. "It appears that these girls have been studying astronomy"
+
+…
+
+They slowly started falling into their routines, assuming their false identities and following them to the letter. 
+
+Orin was a naturally talented teacher. 
+
+He managed bring an intense energy to even the most boring and unintuitive subjects. His energy was contagious and the two girls quickly became as excited about their lessons as their teacher.
+
+--- i
+
+Emlyn also found herself falling in love with the two girls. Catherine was every bit as regal as her birthright required, a true leader of the house in the making. She was diligent and a hard worker, and had a good mind.
+
+Her sister Isabel was the more spirited of the two. While she took after her sister in terms of propriety, she was incredibly bright for a girl of only "eight and a half", and her quick wit often brought Orin to peals of laughter.
+
+The two girls idolised Emlyn, seeing her as a king of eccentric aunt, not quite family perhaps, but definitely one of them. Within a few weeks of their arrival, in an attempt to imitate Emlyn, both Catherine and Isabel had started reading independently, something that Lord and Lady Tosca said had never occurred before.
+
+Their reading became so voracious that Lady Tosca mused whether Lord Tosca might not find it more convenient to move the whole family to Royal Library of Rens, as it would surely be far more convenient for all involved.
+
+
+
+In autumn, with Catherine coming into her maturity, she had started her instruction in fencing, which it was traditional for the heir to compete in. Emlyn had never had much interest in the way of the sword, it had never been considered a particularly useful skill to her for a spy.
+
+Orin however was torn. He had been more than competent competition fencer as a younger man, and watching Catherine drilling in one of the private courtyards had brought him to a near apocalyptic rage over how she was being taught "monstrously wrong".
+
+One night he half heartedly mused whether he ought to offer his services to Lord Tosca, before Emlyn inquired as to whether he had completely lost his marbles if he truly expected Lord Tosca to believe that a well renowned tutor was also a competition fencer.
+
+He had unhappily agreed with her, but he had stopped attending Catherine's training session, and started walking around with a smug air, telling anyone who would listen that he didn't approve of such a bright girl "wasting her time on silly sports".
+
+Emlyn personally thought that he was a little over zealous in his apparent conviction, but every one else seemed to think it was perfectly normal, expected even, that someone in his position would act that way.
+
+
+
+<!---
+
+7.
+---
+
 For the second night in a row, Emlyn felt herself being shaken roughly awake. The smell of alcohol hit her face in a thick miasma.
 
 "Are you drunk, old man?", she inquired, throwing her legs over the side of the bed and rubbing her eyes with her palms as she tried to gain her bearings.
@@ -645,24 +763,12 @@ Emlyn's breath caught in her throat.
 
 !!!
 
-
+-->
 
 <!--- 
 
 X.
 ---
-
-"I think that you will find that my daughters are a truly wonderful pair", Lady Tosca informed them, pacing around the study in which they were sitting. She flitted between the globes and maps, the extensive library and the tools of geometry stacked on shelves throughout the room.
-
-Emlyn had never seen a such a beautiful room of learning in all her life. It was more of a  Library of Everything than a class room. 
-
-The sheer size flummoxed Emlyn. There must have been desks for thirty or more students, but the majority of the space was taken up by large variety of subject areas. Maps and Glboes in one area, portraits of kings and queens, and their accomplishments in another. There was a massive collection of stuffed fauna and pressed fauna in one corner and for those missing from the collection there were endless folders of painstakingly prepared illustrations.
-
-A massive window let in the morning light, which flooded over a massive table, used in the illustration of historic battles. Hundreds of little figures, stuck in a state of perpetual battle. The Battle of The Pine Soldiers, Emlyn spotted on the page of the book illustrating the battle in progress.
-
-"There is no spite or malice in them", Lady Tosca continued, interrupting Emlyn's thoughts. "And you will find them ready to learn"
-
-"I am sure we will", Orin replied.
 
 Bored… Gonna add some action!
 
@@ -1827,6 +1933,15 @@ Orin sighed deeply. "I suspect that there are going to be a lot of difficult que
 Emlyn stuck her arms around Orin, and he hugged her tighter as they finally headed for home.
 
 
+New Guideline!
+---
+
+Flash forward to KA
+
+Switch Reveal
+
+Escape
+
 
 
 Plot Guideline
@@ -1882,12 +1997,14 @@ Long line of succession
   |
 King of Kris - 60
   |
-His daughter, the princess - 30 - Alex Tyne
+Alex Tyne - 30 - (Heir and Princess)
+
+-----
 
 Ben Tosca - 65
   |-------------------|
-Robert Tosca - 34   Edward Tosca - 40
+Robert Tosca - 34   Edward Tosca - 40 + Margret Tosca (formely Loris)
   |                   |----------------|
-James Tosca - 5     Daughter 1 - 11  Daughter 2 - 8
+James Tosca - 5     Catherine 1 - 11  Isabel 2 - 8
 
 -->
