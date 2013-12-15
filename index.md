@@ -277,8 +277,8 @@ She drew the curtains, and promptly fell asleep.
 
 Orin opened his journal, and with exquisite patience, dipped his mechanical quill into the pot of ink and started to write.
 
-> Emlyn's dreams continue. They are taking an increased mental toll on her mental condition. She is sleeping longer, and she has started to unconsciously draw on her Planetwell at night. 
-> I will continue to monitor her, but if her condition continues to worsen medication may be required.
+Emlyn's dreams continue. They are taking an increased mental toll on her mental condition. She is sleeping longer, and she has started to unconsciously draw on her Planetwell at night. 
+I will continue to monitor her, but if her condition continues to worsen medication may be required.
 
 3.
 ---
