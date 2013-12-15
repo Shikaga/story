@@ -120,7 +120,7 @@ The screams of thousands rose up above the crackling furnace, as soldier's warcr
 
 Emlyn tried to move, to scream, to strike out at the pain and suffering that was engulfing her. The heat rose, and she tried to shield her face, and she felt her tears hiss as they evaporated off her face in the searing heat. The fire had risen to a deafening roar, and the smoke stung her eyes, blinding her.
 
-And suddenly, Orin's hand flew through the fire, and caught Emlyn's shoulder, centering her in the malestrom.
+And suddenly, Orin's hand flew through the fire, and caught Emlyn's shoulder, centering her in the maelstrom.
 
 "WAKE UP!"
 
@@ -179,678 +179,6 @@ And with the formalities concluded, it was time for them to depart.
 
 2.
 ---
-
-The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
-
-The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard and the maelstrom of people. Emlyn's head spun as she took in the babbling cacophony of rough speach and alien accents milling around them.
-
-It suddenly occured to Emlyn how far she was from home. On the ship she had been surrounded by Verrisian men. As far as she had travelled she had never really left Verris, it had travelled with her. 
-
-But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
-
-"Now remember Rosie", Orin said, disturbing Emlyn from her trance, "when me meet Lord Kepler, you need to present yourself with perfect propriety. Curtsy deeply, don't talk to him unless he asks you a question directly. Accept any food or drink that he offers. Basically just be a perfect lady."
-
-Of course Emlyn knew all of this. She was perfectly practised in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
-
-The persona that she had painstakingly built around herself would tested to the limit as she entered the swirling whirlpool of court life. While Orin and she were posing as professional tutors, there would many rules and traditional that she would have to observe. In the Royal Keep etiquette and formality were more binding than law, and with stronger penalties.
-
-Emlyn lay her head against the side of the carriage as it continue it's rocking journey up the bumpy street. She was exhausted after her nights of heavy trembling and sour dreams. A small payment for an incredible gift.
-
-Emlyn could only just barely remember not having the powers of a Planet Drinker, most children manifested their power at a very young age. To her it came just as easily as walking and talking, just a thing that she did.
-
-For those around her, nothing had seemed odd at first, perhaps she was a little strong for a small child, but hey, she just had a lot of fight in her. But when a four year old in the midst of a tantrum smashes the kitchen table into a mess of wood and splinters, there is no more denying the truth.
-
-Emlyn had been taken from her mother and brothers and trained in the ways of her gift. It had been the only way to protect both of them.
-
-She learnt about all the ways in which the planets of the night sky radiated power that a fortunate few would be able to pull on. Strength, speed, far sight, the planets provided incredible powers for those precious few who were able to call on them.
-
-Meranis was a the planet of strength, and Emlyn's gift allowed her to call on it. As the planets made the meandering path across the sky, her gift would wax and wane, being it's strongest when the planet was at it's zenith and falling away to nothing when it crossed the horizon.
-
-The daily ebb and flow of Meranis' power was just another trial that Emlyn had become accustomed to. The heady intoxication that Meranis offered when it was directly above her on a clear day was equally matched by the incredible withdrawal she felt just before its dawn. 
-
-The twelve bells that rang between Meranis slipping below the horizon and it's reappearance the next day were the longest Emlyn could imagine. When Meranis set, it was like holding ones breath. At first it wasn't so bad, just a little odd.
-
-After eight bells had rung out she was genuinely gasping for a proverbial breath. While it didn't affect her body in any noticeable way, the withdrawal cut her mind like a blade.
-
-By the time the twelfth bell rung out signalling Meranis' reappearance, she had nearly given up, just in time for the satiating breeze of relief.
-
-But over time one can get used to any amount of suffering. What had left her in agony in her childhood had shrunk to a small throbbing, which rested upon her body in the darkest hours. 
-
-But the previous few days had not been easy for her. A heavy sea fog had descended upon their ship, obscuring the sun and Meranis alike. At first the loss was simply an irritation, the feeling of an insect running lightly across ones arm. 
-
-After two days of only the briefest rays of Meranis breaking through the cloud, Emlyn felt positively rotten. A persistent throbbing headache beat upon her and her temperament was short.
-
-By the third day, Emlyn just tried to sleep her agonising hours away. Upon awakening, Orin would try his best to get her to eat something, but she had lost all appetite, her energy sapped and a body wracked with a chronic throbbing pain. After swallowing what little she could she returned to bed and waited for sleep to relieve her pain.
-
-And just when she thought all was lost, the fog had lifted and Meranis had come shining through. Everything shifted into color, over-saturated and vibrant. The creaking of ropes and the fluttering of canvas, that had previously grated on Emlyn's exhausted mind, now seemed to sing of a beauty of the world and the setting sun reflecting off the small breaking waves now filled the world with a kaleidoscope of color.
-
-Emlyn moved her face closer to the window of the carriage and felt the last rays of Meranis, fill her as it once again began to set.
-
-The cry of soldiers rang out as they passed under the heavy gates of a massive guard tower. Emlyn looked casually out the window as they passed a veritable garrison of saluting soldiers in their bright blue uniforms. 
-
-The carriage rolled to a stop in the middle of a well swept stone courtyard. The door swung open and a tall valet threw out his hand to assist Emlyn's descent.
-
-Orin alighted without much fuss, and presented his official summons to the nearest servant, who quickly beckoned Orin to follow him. 
-
-Emlyn fell in behind them as they climbed the steps towards one of the great stone arches theta led into keep. Dozens of soldiers stood by, ready to deal with any disturbance at a moments notice. Their eye's cut into Emlyn as she walked, and she fought to keep her anxiety down as she entered. 
-
-Every terror of possibility ran through their mind. If they had already been compromised or someone suspected them of being spies, there would be no way for them to escape now. Well, at least not for Orin, Emlyn might have a chance.
-
-Her heart hammered in her chest with every step that she took, but as crossed the marble floor of the entrance hall and were directed down a beautiful hallways, she started to relax.
-
-"In here, Sir", the footman said, throwing wide the double doors of small gallery into which they entered. 
-
-"Please sit", he continued, indicating a number of comfortable chairs and couches in the middle of the room.
-
-"Will you require anything?", the footman asked.
-
-"No. Thank you", Orin replied.
-
-"Lord Tosca will be with you shortly", the footman replied as he withdrew from the room.
-
-As the doors closed behind them, Emlyn fell into one of the chairs. Her hand ran along the beautifully carved wood onto the painstakingly covered velvet cushioning. Orin sat down in the chair next to her.
-
-A few minutes passed as they sat in silence, Emlyn's eyes darting around, staring at the different painting and ornaments upon the wall, double checking all the furnishings in the room. Orin's face remained cool and collected as he stared at the door in front of them.
-
-Just as Emlyn was getting restless, she heard foot steps outside, and with a creak the the doors opposite the ones they entered opened smoothly. A valet entered the room, followed by a tall, perfectly groomed, immaculately dressed man.
-
-"Lord Edward Tosca", the valet announced in a practised intonation, and Orin stood up from his chair, Emlyn following his lead.
-
-"Derin Tomlin, sir", Orin replied. "And my assistant, Rosie Garratt", he said indicating to Emlyn as she curtsied.
-
-"Wonderful to meet you both", Lord Tosca said, a wide smile breaking across his face. He strode forward regally, his short coat tails swinging slightly with his movement, his arm outstretched for a handshake.
-
-"You must be weary from your travels", he inquired as Orin and then Emlyn shook his hand. 
-
-"I am alright, but I think that Rosie would like a chance to rest", Orin replied.
-
-"Of course, of course", Lord Tosca replied, waving his valet over. "Please, make sure that Mistress Rosie is shown to her rooms".
-
-"This way, Mistress", the valet said smoothly, and strove towards the doors. With a quick glance towards Orin, she followed after him.
-
----
-
-3.
----
-
-"This way mi'lady", the maid instructed, indicating for Emlyn to follow. They had stepped into the beautifully decorated hallways of the back quarters, where the honored servants and minor nobles rooms where located. 
-
-These rooms clearly didn't have the kind of splendor and workmanship of the front rooms that they had come through. But these halls still clearly outshone the most elegant corridors one could find in the House of Eyes back in Verris.
-
-Clean wood linings edged the corridors and a beautiful red carpet ran along the middle and a clear bright light was thrown by the multitude of simple but beautiful chandeliers, evenly spaced along the ceiling. 
-
-The walked for a significant distance, taking several turns, but remaining on the same floor. Emlyn made notes of all the doors and stairways that they passed, trying to fabricate a mental model inside her head.
-
-"Here we go", the maid said, pulling a key from her pocket and throwing a door wide and inviting Emlyn to enter.
-
-The room was small, but still exquisitely furnished, wooden panels throughout and tapestries draped upon them.  A double bed with hanging drapes was positioned against the wall and their trunks and cases were stacked tidiliy at the bottom of the bed. 
-
-Emlyn intuitively made a quick count to make sure they were all present. She would have to inspect them more throughly to ensure that they hadn't been tampered with. 
-
-A large desk sat against wall on the far side of the room, below a glass window overlooking the courtyard on the inside of the keep. Emlyn peeked out, gazing down upon the guards performing drills far below. 
-
-"Your room is this way mi'lady", the maid said once again, indicating a door to the right of Orin's bed. "And the privy is over there", she said indicating the door opposite.
-
-"Thank you", Emlyn replied as they entered her quarters.
-
-The maid held out the key to Emlyn. "I have been told that Master Tomlin appreciates his privacy", she said. "This is the key for your room. The only other copies are kept by the Captain of the Guard and the King himself".
-
-Emlyn's eyes darted around her room. As with everything else, this room was well kept. The walls were clean wooden panels, hung with simple but well woven tapestries and a fire crackled in the hearth. Emlyn's single bed was fresh and looked soft and comfortable.
-
-"The servants entrance has been barred from the inside.", the maid continued, indicating a further door in the corner of Emlyn's room. "If you would like any service, simply unbar this door and pull upon that cord", she said waving her hand at the braided velvet rope. "We will also try the door three times a day to maintain the fires and so on".
-
-"Thank you", Emlyn said again, returning to the main chamber, slipping the key into her pocket as she did so. "I think I can sort anything else out."
-
-The maid curtsied and made her way to the door, before turning and saying, "Lord Tosca likes to entertain his guests well on their first night. Your master will likely not return until the early morning".
-
-She took a deep breath before continuing. "I hope I am not being to bold, but you are welcome at the servants table if you would like some company", she said giving Emlyn a small smile.
-
-"I am sorry, I don't think I got your name", Emlyn said suddenly embarrassed at her thoughtlessness.
-
-"Mary mi'lady" *Get it, MAID Mary, lol* 
-
-"Just call me Rosie, Mary. Thank you for the invitation. I will bear it in mind."
-
-"Yes mi'lady" she replied, curtsied and left, closing the door behind her.
-
-Emlyn sighed and fell face forwards onto Orin's wonderfully soft bed. It suddenly occurred to Emlyn that this is the first time that she had been truly alone for over a month.
-
-Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways. But there was still a lot to do.
-
-Emlyn rolled over and returned to her feet and, with a sigh, got to work. She started separating their trunks and placing hers in her room. She unpacked her own bags and once she had finished unloading her clothes into her wardrobe and placing her few possessions upon her desk she returned to begin on Orin's bags.
-
-Orin's bags were filled with a mixture of tools of the trade; Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. Each book was carefully selected, procured from around the world at great expense to represent Orin's widespread travel as a caligrapher.
-
-Emlyn stacked them neatly on below the window on the desk, next to the reams of fine paper, pens and pots of ink.
-
-It was almost certain that they were being watched. In fact, it would be incredibly foolish for their employer not to have them observed, at least at first, for a royal scribe was privy to many secrets. Of course Orin would not be given secrets that weren't to be known within the walls of the keep. His primary job would be taking down the decisions of his lord, writing warrants and reading ancient histories.
-
-Nonetheless, it would only be prudent for spies to be investigating anyone who was allowed inside their walls. For at every step one could find a charlatan who had weaselled his way to power through smooth words and would sell your small secrets to others for a few coin.
-
-Emlyn and Orin had practised their business for many hours before and during their journey. They slowly and painstakingly became their characters, a perfect pair of master and apprentice tutors, outwardly seeming nothing more than overly obsessed teacher, soaked in words and letters.
-
-During her training Emlyn had been taught about the secret of truly invisibility. The importance of discarding one's self, to become a character so absolutely, that eventually your own parents would have difficulty explaining to you who you actually were.
-
-So, when it came time to prepare her masters rooms, she did not think of the secret mechanisms and encoded ciphers emaculately hidden in their bags, for of course, why would there be such things hidden in the bags of a scribe?
-
-Instead, she did exactly as a young apprentice should, and ensured that her master's room was adequately prepared. Where there candles for night time writing? Were his reading glasses near at hand should he require them? Was his chair bestowed with a soft cushion?
-
-And when her master returned, she would speak to him as befitted someone of her station, with respect and humility. And to all the world they would seem like nothing more than exactly what they claimed to be.
-
-4.
----
-
-"You come very highly recommended among the Guild of Scribes", Lord Edward Tosca ventured as Orin let himself drop into a comfortable leather chair.
-
-"Well, it is very nice of them to say so. I fear that they might say the same of every candidate they send to someone of your station.
-
-Lord Tosca smiled, and a footman approached Orin with a exquisite crystal goblet upon a silver tray. "Brandy sir?"
-
-"Thank you very much", Orin replied, retrieving the glass with enthusiasm. "To your health", Orin declared solemnly, leaning forward so that he was almost standing as he did so. 
-
-Lord Tosca raised his glass as well, though he remained motionless in his seat. "And yours", he replied.
-
-They both took a deep drink and a moment of silence fell between them before Lord Tosca continued. 
-
-"So, I assume that have been fully informed of your duties here.", he inquired.
-
-"Well, of course, my only duty is to assist you in any way I can and to the best of my ability", Orin replied, taking a sip of brandy. 
-
-"But beyond that I have been told that my primary duties will be instructing your two young daughters in their studies", he continued, "Math, history, geography, language and of course, lettering."
-
-"I don't think that you will find much problem with them. They are sweet girls, I can assure you that I keep a civil house and expect my daughters to respect their tutors as they would have them respect me", Tosca replied. A smile crept across his face as he continued, "Though if I know girls, that means we have only a few years of civility left".
-
-Orin smiled politely in return, before Lord Tosca continued. "My wife looks after the children's education, and she will instruct you on the specifics that she would like you to cover, and how to do so.
-
- "Like all mother's, she can be very...", Lord Tosca paused, for a second before continuing. "particular, when it comes to her daughters well being. I suspect, that no matter what you do she will find something that she would like altered. Do your best to humor her".
-
-"Of course, Sir", Orin acknowledged, keeping his voice flat. It was one thing for a Lord to criticise his own wife, but Orin suspected that if he ventured even partial agreement he would be likely to offend.
-
-"This apprentice of yours...", Tosca inquired. "Does she also tutor?"
-
-"Yes, Rosie is an incredibly bright young woman, Sir." Orin replied. "She is very knowledgable about the ways of the court and propriety. I think that your daughters will really like her."
-
-"That is good. I sometimes worry that they don't have any older girls to look up to. All these city girls are spoiled brats. I would like them to have an intelligent person around."
-
-"I am sure she will be an excellent role model sir".
-
-"And what of her station?", Edward Tosca inquired. "Not that such things concern me much, but I suspect that there are some members of my house that will not want my daughters spending much time with commoners."
-
-"She is a a minor noble of Verris", Orin replied smoothly. The cogs turned in his head as he sensed an opportunity.
-
-When speaking with a nobleman you had to learn to read between the lines, and there was clearly a question behind the question here. Orin had never mentioned, or given any reason for the lord to suspect that his apprentice was a noblewoman. 
-
-Yet clearly, Tosca hoped that she was. The lord in front of him clearly detected a chance to profit, depending on Orin's response. A noble ward within his house would be a powerful piece that Lord Tosca would be able to play. 
-
-And if there was  chance for Edward Tosca to think he could profit then Orin definitely could.
-
-"Both her parent's died in the Blood Plague about 10 years back.", Orin explained.  "Her relatives arranged for her to get a top quality education with The Guild, until she comes into her majority"
-
-"How tragic", Edward Tosca said, with the smallest hint of sadness. "And her inheritance. Is it significant?"
-
-"Hardly, at least not in monetary terms. But her title will ensure that she will be able to find a husband from among the rich merchants looking for a bit of status. So she has good prospects"
-
-They both took long draws on their pipes, each thinking their own thoughts. Orin had sunk a hook, but whether he had caught a juicy trout or vicious marlin was as yet unclear.
-
-Clearly Tosca was wondering whether there were any political advantages he could get by marrying one his family members into a Verrisian noble house. 
-
-He probably considered a great fortune for this asset to drop into his lap, but Orin might be in a bit of trouble if he was now seen as a liability. If Orin let it be known widely about Emlyn's supposed nobility he would greatly elevate his status, and possibly cause problems for Tosca.
-
-But there would be little that Lord Tosca would be able to do to Orin directly. No, instead he would try to divide Emlyn from him, offer her a better life full of the joys of the aristocracy.
-
-Or perhaps, he would throw a young lieutenant from a friendly family her way. Try and seduce her with a sharp uniform and flattering words.
-
-Either way, Orin liked having options. Even a bad choice was better than no choice, and the more choices that Orin got to make the better he could play the great game.
-
-"Well, I am sorry about her parents. I hope that she can find a kind of family in this house", Tosca said finally. "And you as well of course"
-
-"Of course. I am sure we will appreciate your hospitality greatly Sir"
-
-
-5.
----
-
-Emlyn wandered the long twisting corridors, asking the occasional guard for directions before finally coming to her destination.
-
-Faces turned to look at her, as she stepped into the large stone room that marked the servants dining hall. Emlyn's eyes scanned the long wooden table where servants of all ranks and masters say with meals in front of them, searching for Mary among the many faces.
-
-A wave went up from the end of the table and Emlyn smiled widely as she made her way to where Mary was sitting.
-
-"Over there", Mary said, pointing towards the corner of the room where a large bowl of stew was slowly cooling, with a stack of plates and cutlery accompanying it.
-
-"Glad to see you came to join us", Mary said as Emlyn dropped into the seat next to her. "You look hungry", Mary exclaimed staring at the mountain of food heaped onto Emlyn's plate.
-
-Emlyn blushed bright red and Mary let out a high, bubbly laugh. 
-
-"I am just joking!", she said touching Emlyn affectionately on the arm. "I am sure you have had quite a journey!".
-
-"Three weeks", Emlyn responded politely, starting to work on her food. "And nothing but ship's rations". She could feel many eyes on her and Emlyn just hoped that she hadn't made a fool of herself yet.
-
-"This is Jake, Ben, Samantha...", Mary said, going around the table, oblivious to Emlyn's discomfort. "This is Emlyn everyone", she said once she had introduced everyone. "She is the apprentice of Lord Tosca's new tutor!".
-
-A smattering of welcomes and greetings where directed Emlyn's way. 
-
-"So good to meet you!", said Jake, who was sat next to Emlyn. He must have been in his late teens Emlyn guessed, and quite attractive.
-
-"No, don't you even start Jake", Mary said leaning over Emlyn pushing the boy back with her hand as he laughed. "Don't you listen to this one Rosie. He is all sweet words at first, but it doesn't last".
-
-"Hey, that's not fair!", Jake retorted. "Defamation of character!", he replied as he returned to his food.
-
-The babble increased as everyone returned to their previous conversations. Emlyn studied each of her new acquaintances faces, and going through their names again. Orin would be most upset at her if she wasn't able to recall every name and face with absolute precision later. 
-
-The food slowly disappeared from her plate while Mary chatted to her happily, with Emlyn returning the occasional comment to keep the conversation flowing. Mary didn't seem to mind Emlyn's quietness and had soon informed Emlyn of all the latest gossip in the keep.
-
-The talk about town was all about the mobs that were forming in the principalities. Prince Alex Tyne, had just marched out of the city two days ago to quell the uprising and there were a lot of rumors flying across the table.
-
-"I heard that they were led by giant tiger, who walks among the rebels camp and tame as a cat, but fights alongside them, during the battles"
-
-"Prince Tyne is going to execute half of all the rebels to teach them a lesson about loyalty", another person ventured.
-
-"Don't be ridiculous, if he kills half the rebels who is going to bring in the crop at harvest time?", another servant yelled. "I heard he was simply going to let his soldiers get the pick of their wives and daughters to bring home with them!"
-
-A loud laugh went up from the table, and Emlyn quickly turned to ask Mary what everyone was talking about.
-
-"Prince Alex?" Mary asked increulously. "Wow, you must have come far if you don't know who Prince Alex Tyne is."
-
-Mary's unspoken question hung in the air, but when Emlyn didn't answer it Mary continued. "Prince Alex Tyne is eldest son of the richest family in Kris. After the Royal Anders line itself, of course."
-
-Mary went on to describe Alex Tyne's wedding to Catherine Anders. The description that Mary gave was much different to the power grab that the Tyne family had made by marrying their inheriting son to the inheriting daughter of Kris. 
-
-As Orin had said, she would be best to play it ignorant of current affairs, until she had a better understanding of the mood of those around her.
-
-Mary seemed to imbue the event with some sort of otherworldly beauty, as though she was unable to fully express it in words.
-
-"Of course, I was only a girl when it happened. It was about six years ago now. Anyway, he is probably going to be away for the rest of the summer. Which means that the keep will be quite a lot quieter."
-
-"Oh?", Emlyn asked inquisitvely.
-
-"Well, he has taken a good number of his best lords and each of them took a significant number of their personal guards. So there are far fewer men in the castle than we would usually have at this time of year. 
-
-"Even in winter we normally have more people here. Less work for me to do, though I am sure they will find something for me to do."
-
-"Indeed, well enjoy it while you can", Emlyn said, as she cleared the last morsels of food from her plate.
-
-"I will do. Speaking of which, it is nearly time for me to get back to work.", Mary replied, as she rose from her seat. "The nobles will be making their way to dinner, and I need to go and restock their fires while they are out of their rooms."
-
-"Oh, take me with you!", Emlyn exclaimed, grabbing Mary by the arm with an excited look on her face. 
-
-Mary's face fell, momentarily and just as she was about to reply Emlyn interrupted saying,  "I left the door of my room open, and I bet it would be way faster to use the servant entrance than head back the way I came!"
-
-"It'll be dark! And dusty, you will get your clothes all dirty!"
-
-"I don't mind!", Emlyn said, trying her best to sound too excited to give in.
-
-"Of course you don't! I am the one who is going to have to wash them!", Rosie said, with a mock offence, both of them breaking out in huge grins.
-
-Mary looked both ways before, looking out for any potential witnesses to their crime before whispering, "Okay, but be quiet about it."
-
-She beckoned for Emlyn to follow her as they left the dining hall, heading down the labyrinthian halls that made up the servants passages. 
-
-Mary stopped along the way to light a candle and pick up a heavy pack of firewood, which she slung over her shoulder with surprising ease, before continuing on way.
-
-With a final glance around, and after confirming that the coast was clear, Mary opened a small door and walked into the low stone corridor that provided the means by which the servants were able to travel unseen by those above their station.
-
-Emlyn's mind reeled as she tried to map out the routes were taking, wondering how far she had traveled and how far she would have to go. 
-
-They were hardly the dark catacombs that Mary had made Emlyn suspect she would be subjected to. The roof was low, the path narrow and the light from their candle barely lit their path. But the walls were made cobweb free and the floor had clearly been cleaned recently.
-
-Left, right, straight on through the junction, left…
-
-Emlyn's path back to her room, was significantly longer than it had taken her to reach the dining hall he first time. But Emlyn suspected that without having to walk with a heavy stack of wood, she could probably make pretty good time.
-
-But beyond that, Emlyn marvelled at the massive advantage this route would provide her. The ability to travel between rooms without being seen by the eyes of the wary guards would be a massive advantage when it came time for her to start finding out the secrets hidden within these walls.
-
-Of course, she would have to make sure that she wasn't spotted wandering these halls alone. Rumors among the servants of Master Tomlin's apprentice wandering around the servants halls late at night wouldn't do them any favours.
-
-"Here we are", Mary announced, pushing on the door leading into Emlyn's room. Mary dropped the bundle of wood to floor with a crash and Emlyn followed her in.
-
-"There we go, barely a mark", Emlyn replied, dusting off her dress automatically.
-
-"That's a relief", Mary replied as she heaved the wood back onto her shoulder as she crossed the threshold into Orin's room and began stacking some of the wood next to the fire, and throwing a couple of the larger logs into the hearth.
-
-"My master still isn't back", Emlyn said quietly.
-
-"No, I suspect that he will likely, stumble in sometime before dawn", Mary replied, as she straightened up, making sure everything remained clean.
-
-"That doesn't seem like Derin at all", Emlyn said. "I can't imagine ever seeing him drunk"
-
-"It  is very difficult to turn down a drink from Lord Tosca", Mary said non-comitally. "I must be off now, I have many more rooms to get to"
-
-"Thanks for everying", Emlyn replied as Mary made her way back to the servants door.
-
-"That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
-
-6.
----
-
-The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to "dangerous for the realm" to continue?
-
-During the majority of his career he had looked upon the Guild of Royal Assassins, with disdain. While they undoubtably had their uses, he would much rather deal with the dangers directly, a sword in hand and with the law as his shield, rather than with a poisoned dagger in the dark.
-
-And yet here he was. For the good of the realm he would seek out those which he detested, to follow the only course that was left to him and those he protected.
-
-"Well, I have to say, I never thought that you would be coming to me with a plot to assassinate the King, Captain", the Unbreakable said, the evil grin evident on his face.
-
-"Moreover", he continued, "I never thought that I would actually be considering it.
-
-"And yet here we are", the Captain replied.
-
-"Indeed"
-
-"But whatever you do, it must be absolutely unconnected to me, or anyone member of the Royal Court. It must be so water tight that even I believe that it was a genuine assassination"
-
-"I assure you, it will be"
-
-In the darkness, the Captain watched as the nameless assassin known only as Seven Hundred and Sixty Eight drew a wicked blade from within his robes with cruel efficiency. His mind reeled as he prepared himself for an attack, but his body did not even flinch.
-
-"In older times, one would seal a bond like this with blood", the Unbreakable continued, hovering the weapon openly over his outstretched left hand.
-
-The Captain, continued to stare, directly into his co-conspirator's eyes. He plumbed their depths for the last remnants of humanity, but came up short. He continued to breath in and out and his heart continued to beat, but beyond that the man in front of him was no more than a corpse as far as The Captain could determine.
-
-For a space of three breaths the dagger continued to hover between them, a threat only thinly veiled behind a question. The Captain, steeled himself, holding his hand by it's side, as the anxiety grew in him, greater by every second.
-
-Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
-
-"An old tradition. Probably best forgotten", he said said. "I must be about my duties"
-
-"And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place, just barely stopping himself from sprinting away as fast as he could.
-
-7.
----
-
-Emlyn woke early. She splashed her face with water and got dressed before entering into Orin room. Dawn had barely cracked and she didn't expect Orin to be up yet, but she saw him sitting by his desk, crouching over his books.
-
-"Good morning!", he said, swivelling in his chair to look at her over the top of his glasses.
-
-"It is indeed!", she replied brightly, "I can barely remember the last time I had a good night's sleep in a soft comfortable bed".
-
-"I can see that", he noted, but his small smile fell as he asked her, "And your headaches?"
-
-"All gone now, seems like I just needed a proper rest"
-
-"Excellent, we have a big day ahead of us", he replied. "I have already ordered our breakfast, it should be arriving shortly.
-
-Emlyn nodded, and Emlyn sank into one of the luxurious arm chairs that adorned the room as Orin started filling her in on the details that he had learned the night before.
-
-"And the girls ages?", Emlyn inquired.
-
-"11 and 8. The elder is named Catherine and the younger Isabel.", Orin answered. "And as I am sure that you know, Catherine is the heiress, so unless you want a powerful woman seeking retribution on her cruel tutor when she comes into her majority, I suggest you be nice to her"
-
-Emlyn smiled, just as a knock came at the door. Responding to Orin's summons a maid entered bearing a large tray of breakfast, which she laid out on one of the small parlour tables before withdrawing.
-
-"And did Lord Tosca drink you under the table last night?", Emlyn asked as she helped herself to a large plate of eggs, bacon and toasted bread covered in marmalade. "Some of the servants were quite worried for your wellbeing"
-
-Orin laughed heartily, "Well, I will give it to the man, he knows how to entertain guests. I suspect that he will be quite put out if I don't pretend to be at least a bit hung-over this morning."
-
-"Speaking of which…", Orin continued raising the coffee pot in question, with which he started pouring two cups on Emlyn's nod.
-
-"But he seems like a good man", Orin continued raising his mug to his lips. "He is clearly quite provincial in his upbringing, clearly very used to dealing with his servants and the day to day running of his land. Unlike most of the other nobles that we will meet here, I suspect."
-
-Emlyn sipped her coffee as she mused about the strange new world that she was entering. By any real measure it wasn't that different from the life that she had lived so far.
-
-She had to listen to Orin and assist him with his chores. 
-
-As a child, she had been raised in the House of Eyes. While her gift made her particularly special, she was surrounded by other talented children learning to become spies. 
-
-Emlyn had been one of the more intellectual talented students. She picked up languages quickly and was fluent in the ways of numbers which she considered to be as straightforward as walking, if not more so.
-
-She spent a lot of time helping out the other students in her spare time and she didn't think that thus world be much harder than that.
-
-While there were many lessons in The House about codes and cyphers and secrets if moving unseen, there were far more about regular subjects. All students were taught three languages in addition to their native tongues, to varying degrees, as well as well as how to hide their accents. Perhaps not well enough to trick a native, but people always assumed someone with a strong accent was simply provincial.
-
-Of course, history, geography and of course politics was vital to their education. To understand in depth who had allegiance to who and what how that connection could be used to your advantage was invaluable.
-
-And the importance of knowing history, both recent and ancient from the point of view of every culture was absolutely essential if you expected to be able to gather information from the commoners in a pub. Nothing would make you stand out further from a crowd than not knowing their kingdom's great military victories, and it was best not to mention any defeats.
-
-"You nervous?", Orin asked as Emlyn went through her character in her head for the final time. Emlyn looked up at him with a blank expression. "Don't be", he replied with a smile. 
-
-When they had finished off the last of their breakfast, Emlyn headed back to her room to change into her formal attire. She brushed her back into a strict ponytail, which she then pinned into a bun in why she thought was a formal "tutorish" look.
-
-She picked a light grey dress to along with it, and after throwing it on returned to join Orin.
-
-"You ready?", he asked, dressed in his own robes of formal black. 
-
-Emlyn nodded, and they left to begin their masquerade.
-
----
-
-
-"I think that you will find that my daughters are a truly wonderful pair", Lady Tosca informed them, pacing around the study in which they were sitting. She flitted between the globes and maps, the extensive library and the tools of geometry stacked on shelves throughout the room.
-
-Emlyn had never seen a such a beautiful room of learning in all her life. It was more of a  Library of Everything than a class room she thought.
-
-The sheer size flummoxed Emlyn. There must have been desks for thirty or more students, but the majority of the space was taken up by large variety of subject areas. Maps and Glboes in one area, portraits of kings and queens, and their accomplishments in another. There was a massive collection of stuffed fauna and pressed fauna in one corner and for those missing from the collection there were endless folders of painstakingly prepared illustrations.
-
-A massive window let in the morning light, which flooded over a massive table, used in the illustration of historic battles. Hundreds of little figures, stuck in a state of perpetual battle. The Battle of The Pine Soldiers, Emlyn spotted on the page of the book illustrating the battle in progress.
-
-"There is no spite or malice in them", Lady Tosca continued, interrupting Emlyn's thoughts. "And you will find them ready to learn"
-
-"I am sure we will", Orin replied.
-
-"As to the direction of their lessons, you will directing them primarily in history, geography, noble houses, languages and calligraphy", Lady Tosca informed them as she pushed a large ledger towards them. 
-
-"This is a record of all the lessons that they have undertaken so far, and their proficiency in them. You will of course keep it up to date, with your plan for a month in advance so that I may look over it and correct any misunderstandings"
-
-"Of course", Orin replied, as he opened the ledger to last entry highlighted by a thick ribbon running across the page.
-
-"Their previous tutor, left a plan for the next month", Lady Tosca continue indicating the pages of finely inked spidery letters.  "I expect you to follow them, after which I think you will have the freedom to choose your own lessons"
-
-"Excellent", Orin continued. Emlyn glanced at Orin for a split second before returning her  eyes to Lady Tosca.
-
-"Good, well, the girls will join you here at 11th bell", Lady Tosca informed them. "That should give you plenty of time to prepare your first lesson"
-
-"Thank you", Orin replied deferentially.
-
-"Well my husband has convinced me that my daughters are in good hands, so I will send for you if I need anything further", and with that Margret Tosca left the room.
-
-"She seemed very sure of herself", Emlyn quietly whispered to Orin, as she pulled the ledger in front of her and started examining its contents
-
-"No doubt just the eccentricities of a caring mother." Orin replied. "Lord Tosca told me that she might be a little earnest in her duties"
-
-"Well, I hope that it doesn't become a problem", Emlyn mused
-
-"Only time will tell. But either way it won't be affect our true purpose"
-
-Emlyn stood up from the table and started looking through the library shelves for the books mentioned in the next weeks lessons. Meanwhile, Orin started flipping back through the ledger examining their past lessons.
-
-"Oh this is interesting", he called out to Emlyn who had scaled a ladder to pick out a copy of 'Heridian History: A retrospective'. "It appears that these girls have been studying astronomy".
-
-Emlyn glanced down at Orin seriously, before slowly descending the ladder.
-
-"Interesting", Emlyn replied.
-
-Orin continued to flip through the ledger, pausing here and there to think about the contents.
-
-"Well, it doesn't look like we are expected to teach any Astronomy ourselves. Pity, I am sure you could provide some valuable insight."
-
-Emlyn, felt a cold sweat on her body with the thought of being discovered.
-
-"Yeah", she replied noncommittally. "Heridian History", she said finally dropping the book on the table.
-
-"Let's see what they think of the Heridian Wars on this side of the ocean then shall we?", pulling the book over to him as Emlyn scanned the ledger for herself.
-
-
-For the next couple of hours Orin planned his lessons, cross referencing the books, with his knowledge and the notes in the margins of the ledger until he was sure that he had a complete picture of what needed to be taught.
-
-Emlyn meanwhile spent her time going through the library, inspecting all the different shelves and their contents. The organisation system was not one that she had ever encountered before, and the positioning of one section seemed to have no bearing on any of the others. 
-
-In the end, she just sat in front of the index cards and looked up well known tomes to find which section they were in, and hunted from there.
-
-As the eleventh bell rung out loudly across the keep the doors were flung open by a pair of guards and two young girls where escorted in, their mother in tow and with regal grace the two girls crossed the library to where Orin and Emlyn stood formerly to meet them.
-
-"This is my daughter Catherine", Lady Tosca said indicating the taller girl who curtsied, "and Isabel", the other girl curtsied.
-
-"This is Master Tomlin and Miss Rosie", she continued, and Orin and Emlyn bowed and curtsied in return.
-
-"Alright then, I will leave you to it then", Lady Tosca said, clapping her hands together, and just as quickly as she had entered, left.
-
-As Emlyn watched the door swing closed behind Lady Tosca, Orin asked "Shall we sit?", and started pulling up four chairs in a circle.
-
-"So, what do you want to learn about?"
-
-Catherine, Isabel and Emlyn all stared at him. A moment passed and then another, before Catherine finally piped up, "Why Prince Tyne left. And who he is fighting. And why".
-
-"Hmm, a very interesting question. Haven't you been told that Prince Tyne has left to protect the kingdom?"
-
-"Well, I know that.", Catherine said, while Isabel nodded vigorously. "I just want to know why."
-
-Orin leant back in his chair, and adjusted his glasses, and looked back down at the ledger.
-
-"Well that is a great question Catherine. And did either of you know that all the answers you need, are right here in this room, if you only knew how to look for them?"
-
-Catherine and Isabel both shook their head, and if Emlyn hadn't known Orin better she would have felt incline to agree with them.
-
-"As I am sure you know, there has been a rebellion in the west, and as a Prince of the Realm, it is Alex Tyne's duty to protect his people and re-establish the rule of law.
-
-Now I can tell you who has rebelled, and why, but I think it will be a lot more interesting if we discover that for yourselves. Rosie if you would get the books on the Cutler's Rebellion?"
-
-8.
----
-
-They slowly started falling into their routines, assuming their false identities and following them to the letter. 
-
-Orin was a naturally talented teacher. 
-
-He managed bring an intense energy to even the most boring and unintuitive subjects. His energy was contagious and the two girls quickly became as excited about their lessons as their teacher.
-
-Emlyn had also found herself falling in love with the two girls. Catherine was every bit as regal as her birthright required, a true leader of the house in the making. She was diligent and a hard worker, and had a good mind.
-
-Her sister Isabel was the more spirited of the two. While she took after her sister in terms of propriety, she was incredibly bright for a girl of only "eight and a half", and her quick wit often brought Orin to peals of laughter.
-
-Together, the two girls idolised Emlyn, seeing her as a kind of eccentric aunt, not quite family perhaps, but definitely one of them. From Emlyn's point of view, the five year gap between her and Catherine was like a giant chasm between, but Orin pointed out to her that most people saw them as almost the same age, perhaps Emlyn as the eldest of three sisters. Emlyn tried to take this to heart.
-
-And it seemed like the girls saw things the same way. Rather than treating Emlyn like they would most tutors, they treated her more like a their big sister, trying to follow her around in their spare time and so on.
-
-Not that their was much about Emlyn for them to imitate. Emyln and Orin had struck a quiet life, spending most of their time either delivering or planning lessons. Orin spent a good amount of time helping Lord Tosca with his duties, translation of writs and so forth.
-
-Emlyn meanwhile spent most of her free time reading in the library, or on clear sunny day, that were slowly growing shorter as winter approached, in one of the courtyards. There were many books that had not been available to her when she had lived in the House of Eyes in Verris, and she tried to read all that she could without seeming suspicious to anyone who inspected their contents.
-
-As younger sisters are wont to do, both Catherine and Isabel had started to imitate her. One particularly rainy day, Emlyn had retired to the library to continue her foray through "Angoran spice: The ingredient that revolutionised the maritime trading". 
-
-Emlyn loved to sit in the Library when it was raining; the hard gust of winds blowing the rain against the floor to ceiling windows created a kind of hypnotic percussion which combined with the warmth of the braziers placed her in a deep trance while she read.
-
-She had been sitting in her favourite armchair, it's large seat allowed her to cross her legs on the soft cushioned upholstery, and the embroidered panels on either side prevented others from seeing that she occupied it when she faced it towards the window.
-
-Out of the corner of her eye Emlyn noticed a the vigorous movement of Catherine and Isabel pulling their own chairs into a small half circle around the window. Emlyn peeked over the top of her book, as the two girls sat on their own chairs and began to read.
-
-A small smile broke out on her face as she noticed that they had both picked books similar to hers. Both were the drier more boring history books, figures and and tables, with long verbatim accounts of different trade agreements.
-
-Both girls sat down for a few minutes and made a good deal of turning the pages and trying to sit quietly. Isabel persevered for a few minutes but it soon became evident that she was wondering precisely when this was supposed to become an enjoyable pastime.
-
-While Isabel was bright for her age, if she was able to be understand more than one in five of the words in her chosen volume Emlyn would have been surprised. She wriggled irritably on her seat, and looked over the top of her book every few seconds, at both her sister and Emlyn, hoping that one of them would do something interesting.
-
-Her sister was very pointedly ignoring her, trying to show how maturely she could read, while turning the pages way to fast to be able to pick anything up, perhaps looking for the chapters that pertained to dragons or fairy princesses.
-
-Finally, Emlyn threw up her hands and scoured the shelves for some books that were more appropriate for them to read. They were slim pickings but the library contained some commentaries of recent events which were more digestible than most.
-
-Having settled down, the two girls seemed to quieten down somewhat and Emlyn wen t back to her reading.
-
-Emlyn didn't think much about the event until about a week later when Cathy returned with Isabel's book, requesting another one. Catherine explained that she had already read all of her own book and Isabel was still working her way through her book, and she would like some more to read.
-
-Within a few weeks of that, both girls had started to read quite thoroughly, making their way through the small number of appropriate books that were on offer. When those had run out, they had been forced to read other books, that were available, going through a large amount of the history and geography sections, reading all they could.
-
-Their reading became so voracious that Lady Tosca mused whether Lord Tosca might not find it more convenient to move the whole family to Royal Library of Rens, as it would surely be far more convenient for all involved.
-
-But Orin could see that he was really proud of his daughters, and he soon arranged a stipend for Orin to spend on acquiring more books for them. On the quieter evenings, Orin and Emlyn would be invited to eat in the main hall with the nobles and honoured servants, and Emlyn could just make out Lord Tosca asking his girls what they had learned today.
-
-In the jovial clamour of the hall, she couldn't make out their responses, but Lord Tosca seemed to enjoy their answers and had plenty of follow up questions. Lady Tosca didn't seem to share her husbands enthusiasm, but non the less she seemed to encourage the girls curiosity.
-
-Emlyn started taking a great pride in her work, but a growing sense of unease started building inside of Emlyn with each day that they failed to make any progress on their true mission. 
-
-Across the sea and many miles away, their country was relying on them to do their duty, but from Emlyn's point of view, they were no closer to completing it than they had been when they arrived.
-
-So it was with great relief that one night Orin slipped Emlyn a small slip of paper one night in their room. 
-
-She opened the note and her heart skipped a beat with excitement.
-
-"11th Bell. Get Ready".
-
-9.
----
-
-That night she sat and read for a while until the ninth bell rung out, when she declared that she would turn in, as she did normally. Summer was only just giving way to autumn and the sun had just set, rendering enough darkness for her to get to sleep.
-
-But once she had retreated to her room, she instead flipped an hour glass, started to make her preparations.
-
-It had always been a possibility that they would have been observed. In fact, Orin considered almost a certainty, that at some times, they would be spied upon from the secret corridors that no doubt ran throughout the castle.
-
-But no one could see all places at once, and after a few weeks of boring monotony, any spies would likely have stopped watching them, except for the occasional checkup now and then.
-
-The thought of someone looking in on Emlyn at her most intimate moments, sent a shiver down her spine. All the worse for not being able to do anything about the possibility; changing her behaviour at all would look incredibly suspicious.
-
-And of course, the hypocrisy of not wanting to be spied on was not lost on Emlyn. Still, they had done all they could so far to avoid suspicion and it was time to make it count.
-
-After glancing to make sure that the servants door was still locked, Emlyn swung her trunk onto her bed, and with a bit of fumbling, coaxed the secret lock open. A panel at the bottom of the trunk popped open, and Emlyn reached in and pulled out a smooth dark, piece of cloth.
-
-She threw the coat her shoulders, the dark material fitting her perfectly. She pulled the hood over head, where it obscured her face from the light, but allowed her to turn her neck and head without obstruction.
-
-Reaching down into the trunk again, Emlyn pulled out a pair of gloves and a thick belt, which she fastened around her stomach like a corset.
-
-Orin, peeked his head in, and with a nod, she followed him.
-
-Orin was dress head to toe in black. His coat hung tightly around him, dropping to the ground, stopping just short of his leather shoes, which were bound in cloth to dampen the sound of his foot prints. Black cloth was likewise wrapped around his head, obscuring his face, with his two eyes peeking out into the darkness.
-
-"It appears that we have been blessed with incredible fortune", Orin whispered to Emlyn, offering her a black shroud which she started to wrap around her head, making sure to keep her hair out of her face.
-
-"I have good reason to believe that our predecessor still lives", Orin announced. "But we must act fast if we are going to capitalise on this turn of events"
-
-Emlyn's mind spun. 
-
-When they had left Verris they were certain that their predecessor had been killed. The fact that he was still alive only brought more questions than answers. The possibility of a trap was high. Any information that Orin had been able to glean could have been left out intentionally for him to find, just in case he was a spy.
-
-But Orin knew this, and if he decided that it was worth the risk, then Emlyn wouldn't argue. No spy got to Orin's age by taking unnecessary risks.
-
-"So what is the plan?", Emlyn asked
-
-"We go to him. Now."
-
-"And if we are observed?"
-
-"Then we are already dead, and we have nothing to lose"
-
-Emlyn nodded, as she wrapped the last piece of cloth around her hands.
-
-"Meranis is just dawning", she whispered, feeling the warm rays rising above the walls of the keep.
-
-"There are many Scryers, be careful not to be seen".
-
-"I know", Elmlyn replied.
-
-Orin drew the shutters of the window open and stared down into the courtyard below. One soldier was patrolling on his rounds, but his eyes never flew to the rafters where Orin and Emlyn would be making their move.
-
-With a big step Orin positioned himself onto the windowsill and craned his neck to look at roof four floors above him, hooked rope in hand. With a big breath, Orin planted his left foot on the windowsill, and with his left hand gripping the frame tightly, he threw his body out over the cavernous expanse below.
-
-With nothing but air below him, Orin started to hook in a short circle, slowly accumulating speed until the hook started to whistle and he released it in a  flying arc towards the roof far above him.
-
-The hook sailed through the night air, pulling the rapidly uncoiling rope behind it. For a few seconds the rope continued to fly, but the inexorable pull of gravity could not be denied, and hook eventually slowed to a standstill and started to fall.
-
-With a soft clink the hook fell upon the roof, and their hearts caught in their throats and they listened out for any cry of alarm or disturbance. But the cool night air remained quiet, and the guard below them showed no sign of concern in the pale moonlight.
-
-Slowly, Orin started to pull on he rope and after a few hands, the rope caught against the  crenelations above them.
-
-With a series of jerks, Orin tested the rope, but it held and with an outstretched arm he offered the rope to Emlyn. She took it in her hand, and after running it through a series of metal loops on her belt, she leapt over abyss.
-
-The rough stone wall provided plenty of foot holds and Emlyn started to ascend. 
-
-Her fingers caught the wall deftly and her back strained as she pulled herself up brick by brick, pulling the rope through her belt every few steps, before continuing up.
-
-Emlyn's training had whipped her body into athletic form, and she scaled the wall quickly without loosing breath.
-
-Finally hitting the top of the building she rolled over the crenelations and, after checking the hook was still stuck firm, she gave it a series of jerks to inform Orin to follow her.
-
-The rope went taught as Orin began his ascent, and a few moments he threw his arm over the crenellations. Emlyn caught his outstretch hand and pulled him up.
-
-After a brief pause to wrap the rope around his waist, Orin signalled to Emlyn that he was ready to proceed and began walk gingerly along the edge of the roof, with Emlyn in tow.
-
-Under the clear night sky Emlyn could see full majesty of Kris. The city flowed from the palace, the buildings covering ever inch of the city right down the ocean upon which the small fishing boats could be seen rocking on the waves.
-
-In the darkness the city seemed to take up a romantic air. The lights from the lamps and fires within the gave a warm homely feel to a what would be turning into a chaotic miasma of business in just a few hours.
-
-The a cool sea breeze blew inland, carrying the smell of brine, clearing Emlyn's head and bringing on a certain feeling of nostalgia for days long past.
-
-With a sudden halt Orin threw up his arm, indicating for Emlyn to stop. With a intense look Orin pointed down to the courtyard.
-
-Emlyn's breath caught in her throat.
 
 
 <!---
@@ -1311,7 +639,7 @@ He felt the pyromancer's trick ignite and threw it out into the night and tucked
 
 "There!", a cry went out from the Captain and his heart started pounding, his fear rising, every second expecting a sword to his chest or neck.
 
-Suddenly her head Emlyn cry out, her voice reverberating off the narrow alley walls, followed by a bone crunching thud as something thundered into the hard stone.
+Suddenly he heard Emlyn cry out, her voice reverberating off the narrow alley walls, followed by a bone crunching thud as something thundered into the hard stone.
 
 Orin's heart quavered, but he held his eyes tightly shut and counted each of his heart beats, preparing for what was about to come. 
 
@@ -2118,4 +1446,703 @@ Robert Tosca - 34   Edward Tosca - 40 + Margret Tosca (formely Loris)
   |                   |----------------|
 James Tosca - 5     Catherine 1 - 11  Isabel 2 - 8
 
+---
+
+COOL LINES:
+
+On knowing other members of the House of Eyes : "Eyes, though separated by barely an inch, can never see each other."
+
 -->
+
+<!---
+
+WOW, I hate to delete so much. But this shit just wasn't working
+
+2.
+---
+
+The carriage rocked lightly on the paved streets heading away from the pier. The coachmen cracked their whips and yelled eagerly at the teaming masses blocking their way to the inner city. 
+
+The horses flung themselves forward eagerly as they trotted uphill along the wide boulevard and the maelstrom of people. Emlyn's head spun as she took in the babbling cacophony of rough speach and alien accents milling around them.
+
+It suddenly occured to Emlyn how far she was from home. On the ship she had been surrounded by Verrisian men. As far as she had travelled she had never really left Verris, it had travelled with her. 
+
+But now she was suddenly thrust into a very different place indeed. Though all civilised people now spoke the common tounge, the accents of those around her were so strong that she had trouble putting their sentences together. And their voices were loud and harsh to her ears. And they even smelled odd, no worse than the sailors on the ship, but most certainly different.
+
+"Now remember Rosie", Orin said, disturbing Emlyn from her trance, "when me meet Lord Kepler, you need to present yourself with perfect propriety. Curtsy deeply, don't talk to him unless he asks you a question directly. Accept any food or drink that he offers. Basically just be a perfect lady."
+
+Of course Emlyn knew all of this. She was perfectly practised in all the customs of Kris. Not that she would follow them too closely. It might seem a little bit odd to those around her if she didn't make any social gaffes.
+
+The persona that she had painstakingly built around herself would tested to the limit as she entered the swirling whirlpool of court life. While Orin and she were posing as professional tutors, there would many rules and traditional that she would have to observe. In the Royal Keep etiquette and formality were more binding than law, and with stronger penalties.
+
+Emlyn lay her head against the side of the carriage as it continue it's rocking journey up the bumpy street. She was exhausted after her nights of heavy trembling and sour dreams. A small payment for an incredible gift.
+
+Emlyn could only just barely remember not having the powers of a Planet Drinker, most children manifested their power at a very young age. To her it came just as easily as walking and talking, just a thing that she did.
+
+For those around her, nothing had seemed odd at first, perhaps she was a little strong for a small child, but hey, she just had a lot of fight in her. But when a four year old in the midst of a tantrum smashes the kitchen table into a mess of wood and splinters, there is no more denying the truth.
+
+Emlyn had been taken from her mother and brothers and trained in the ways of her gift. It had been the only way to protect both of them.
+
+She learnt about all the ways in which the planets of the night sky radiated power that a fortunate few would be able to pull on. Strength, speed, far sight, the planets provided incredible powers for those precious few who were able to call on them.
+
+Meranis was a the planet of strength, and Emlyn's gift allowed her to call on it. As the planets made the meandering path across the sky, her gift would wax and wane, being it's strongest when the planet was at it's zenith and falling away to nothing when it crossed the horizon.
+
+The daily ebb and flow of Meranis' power was just another trial that Emlyn had become accustomed to. The heady intoxication that Meranis offered when it was directly above her on a clear day was equally matched by the incredible withdrawal she felt just before its dawn. 
+
+The twelve bells that rang between Meranis slipping below the horizon and it's reappearance the next day were the longest Emlyn could imagine. When Meranis set, it was like holding ones breath. At first it wasn't so bad, just a little odd.
+
+After eight bells had rung out she was genuinely gasping for a proverbial breath. While it didn't affect her body in any noticeable way, the withdrawal cut her mind like a blade.
+
+By the time the twelfth bell rung out signalling Meranis' reappearance, she had nearly given up, just in time for the satiating breeze of relief.
+
+But over time one can get used to any amount of suffering. What had left her in agony in her childhood had shrunk to a small throbbing, which rested upon her body in the darkest hours. 
+
+But the previous few days had not been easy for her. A heavy sea fog had descended upon their ship, obscuring the sun and Meranis alike. At first the loss was simply an irritation, the feeling of an insect running lightly across ones arm. 
+
+After two days of only the briefest rays of Meranis breaking through the cloud, Emlyn felt positively rotten. A persistent throbbing headache beat upon her and her temperament was short.
+
+By the third day, Emlyn just tried to sleep her agonising hours away. Upon awakening, Orin would try his best to get her to eat something, but she had lost all appetite, her energy sapped and a body wracked with a chronic throbbing pain. After swallowing what little she could she returned to bed and waited for sleep to relieve her pain.
+
+And just when she thought all was lost, the fog had lifted and Meranis had come shining through. Everything shifted into color, over-saturated and vibrant. The creaking of ropes and the fluttering of canvas, that had previously grated on Emlyn's exhausted mind, now seemed to sing of a beauty of the world and the setting sun reflecting off the small breaking waves now filled the world with a kaleidoscope of color.
+
+Emlyn moved her face closer to the window of the carriage and felt the last rays of Meranis, fill her as it once again began to set.
+
+The cry of soldiers rang out as they passed under the heavy gates of a massive guard tower. Emlyn looked casually out the window as they passed a veritable garrison of saluting soldiers in their bright blue uniforms. 
+
+The carriage rolled to a stop in the middle of a well swept stone courtyard. The door swung open and a tall valet threw out his hand to assist Emlyn's descent.
+
+Orin alighted without much fuss, and presented his official summons to the nearest servant, who quickly beckoned Orin to follow him. 
+
+Emlyn fell in behind them as they climbed the steps towards one of the great stone arches theta led into keep. Dozens of soldiers stood by, ready to deal with any disturbance at a moments notice. Their eye's cut into Emlyn as she walked, and she fought to keep her anxiety down as she entered. 
+
+Every terror of possibility ran through their mind. If they had already been compromised or someone suspected them of being spies, there would be no way for them to escape now. Well, at least not for Orin, Emlyn might have a chance.
+
+Her heart hammered in her chest with every step that she took, but as crossed the marble floor of the entrance hall and were directed down a beautiful hallways, she started to relax.
+
+"In here, Sir", the footman said, throwing wide the double doors of small gallery into which they entered. 
+
+"Please sit", he continued, indicating a number of comfortable chairs and couches in the middle of the room.
+
+"Will you require anything?", the footman asked.
+
+"No. Thank you", Orin replied.
+
+"Lord Tosca will be with you shortly", the footman replied as he withdrew from the room.
+
+As the doors closed behind them, Emlyn fell into one of the chairs. Her hand ran along the beautifully carved wood onto the painstakingly covered velvet cushioning. Orin sat down in the chair next to her.
+
+A few minutes passed as they sat in silence, Emlyn's eyes darting around, staring at the different painting and ornaments upon the wall, double checking all the furnishings in the room. Orin's face remained cool and collected as he stared at the door in front of them.
+
+Just as Emlyn was getting restless, she heard foot steps outside, and with a creak the the doors opposite the ones they entered opened smoothly. A valet entered the room, followed by a tall, perfectly groomed, immaculately dressed man.
+
+"Lord Edward Tosca", the valet announced in a practised intonation, and Orin stood up from his chair, Emlyn following his lead.
+
+"Derin Tomlin, sir", Orin replied. "And my assistant, Rosie Garratt", he said indicating to Emlyn as she curtsied.
+
+"Wonderful to meet you both", Lord Tosca said, a wide smile breaking across his face. He strode forward regally, his short coat tails swinging slightly with his movement, his arm outstretched for a handshake.
+
+"You must be weary from your travels", he inquired as Orin and then Emlyn shook his hand. 
+
+"I am alright, but I think that Rosie would like a chance to rest", Orin replied.
+
+"Of course, of course", Lord Tosca replied, waving his valet over. "Please, make sure that Mistress Rosie is shown to her rooms".
+
+"This way, Mistress", the valet said smoothly, and strove towards the doors. With a quick glance towards Orin, she followed after him.
+
+---
+
+3.
+---
+
+"This way mi'lady", the maid instructed, indicating for Emlyn to follow. They had stepped into the beautifully decorated hallways of the back quarters, where the honored servants and minor nobles rooms where located. 
+
+These rooms clearly didn't have the kind of splendor and workmanship of the front rooms that they had come through. But these halls still clearly outshone the most elegant corridors one could find in the House of Eyes back in Verris.
+
+Clean wood linings edged the corridors and a beautiful red carpet ran along the middle and a clear bright light was thrown by the multitude of simple but beautiful chandeliers, evenly spaced along the ceiling. 
+
+The walked for a significant distance, taking several turns, but remaining on the same floor. Emlyn made notes of all the doors and stairways that they passed, trying to fabricate a mental model inside her head.
+
+"Here we go", the maid said, pulling a key from her pocket and throwing a door wide and inviting Emlyn to enter.
+
+The room was small, but still exquisitely furnished, wooden panels throughout and tapestries draped upon them.  A double bed with hanging drapes was positioned against the wall and their trunks and cases were stacked tidiliy at the bottom of the bed. 
+
+Emlyn intuitively made a quick count to make sure they were all present. She would have to inspect them more throughly to ensure that they hadn't been tampered with. 
+
+A large desk sat against wall on the far side of the room, below a glass window overlooking the courtyard on the inside of the keep. Emlyn peeked out, gazing down upon the guards performing drills far below. 
+
+"Your room is this way mi'lady", the maid said once again, indicating a door to the right of Orin's bed. "And the privy is over there", she said indicating the door opposite.
+
+"Thank you", Emlyn replied as they entered her quarters.
+
+The maid held out the key to Emlyn. "I have been told that Master Tomlin appreciates his privacy", she said. "This is the key for your room. The only other copies are kept by the Captain of the Guard and the King himself".
+
+Emlyn's eyes darted around her room. As with everything else, this room was well kept. The walls were clean wooden panels, hung with simple but well woven tapestries and a fire crackled in the hearth. Emlyn's single bed was fresh and looked soft and comfortable.
+
+"The servants entrance has been barred from the inside.", the maid continued, indicating a further door in the corner of Emlyn's room. "If you would like any service, simply unbar this door and pull upon that cord", she said waving her hand at the braided velvet rope. "We will also try the door three times a day to maintain the fires and so on".
+
+"Thank you", Emlyn said again, returning to the main chamber, slipping the key into her pocket as she did so. "I think I can sort anything else out."
+
+The maid curtsied and made her way to the door, before turning and saying, "Lord Tosca likes to entertain his guests well on their first night. Your master will likely not return until the early morning".
+
+She took a deep breath before continuing. "I hope I am not being to bold, but you are welcome at the servants table if you would like some company", she said giving Emlyn a small smile.
+
+"I am sorry, I don't think I got your name", Emlyn said suddenly embarrassed at her thoughtlessness.
+
+"Mary mi'lady" *Get it, MAID Mary, lol* 
+
+"Just call me Rosie, Mary. Thank you for the invitation. I will bear it in mind."
+
+"Yes mi'lady" she replied, curtsied and left, closing the door behind her.
+
+Emlyn sighed and fell face forwards onto Orin's wonderfully soft bed. It suddenly occurred to Emlyn that this is the first time that she had been truly alone for over a month.
+
+Sure, she had her cabin on the ship. But there had always sailor's rushing up and down the corridors, their heavy boots clattering through the gangways. But there was still a lot to do.
+
+Emlyn rolled over and returned to her feet and, with a sigh, got to work. She started separating their trunks and placing hers in her room. She unpacked her own bags and once she had finished unloading her clothes into her wardrobe and placing her few possessions upon her desk she returned to begin on Orin's bags.
+
+Orin's bags were filled with a mixture of tools of the trade; Paper, pens, quills and ink. Two dozen books of translations, carefully wrapped in Orin's finer clothes to protect them from harm. Each book was carefully selected, procured from around the world at great expense to represent Orin's widespread travel as a caligrapher.
+
+Emlyn stacked them neatly on below the window on the desk, next to the reams of fine paper, pens and pots of ink.
+
+It was almost certain that they were being watched. In fact, it would be incredibly foolish for their employer not to have them observed, at least at first, for a royal scribe was privy to many secrets. Of course Orin would not be given secrets that weren't to be known within the walls of the keep. His primary job would be taking down the decisions of his lord, writing warrants and reading ancient histories.
+
+Nonetheless, it would only be prudent for spies to be investigating anyone who was allowed inside their walls. For at every step one could find a charlatan who had weaselled his way to power through smooth words and would sell your small secrets to others for a few coin.
+
+Emlyn and Orin had practised their business for many hours before and during their journey. They slowly and painstakingly became their characters, a perfect pair of master and apprentice tutors, outwardly seeming nothing more than overly obsessed teacher, soaked in words and letters.
+
+During her training Emlyn had been taught about the secret of truly invisibility. The importance of discarding one's self, to become a character so absolutely, that eventually your own parents would have difficulty explaining to you who you actually were.
+
+So, when it came time to prepare her masters rooms, she did not think of the secret mechanisms and encoded ciphers emaculately hidden in their bags, for of course, why would there be such things hidden in the bags of a scribe?
+
+Instead, she did exactly as a young apprentice should, and ensured that her master's room was adequately prepared. Where there candles for night time writing? Were his reading glasses near at hand should he require them? Was his chair bestowed with a soft cushion?
+
+And when her master returned, she would speak to him as befitted someone of her station, with respect and humility. And to all the world they would seem like nothing more than exactly what they claimed to be.
+
+4.
+---
+
+"You come very highly recommended among the Guild of Scribes", Lord Edward Tosca ventured as Orin let himself drop into a comfortable leather chair.
+
+"Well, it is very nice of them to say so. I fear that they might say the same of every candidate they send to someone of your station.
+
+Lord Tosca smiled, and a footman approached Orin with a exquisite crystal goblet upon a silver tray. "Brandy sir?"
+
+"Thank you very much", Orin replied, retrieving the glass with enthusiasm. "To your health", Orin declared solemnly, leaning forward so that he was almost standing as he did so. 
+
+Lord Tosca raised his glass as well, though he remained motionless in his seat. "And yours", he replied.
+
+They both took a deep drink and a moment of silence fell between them before Lord Tosca continued. 
+
+"So, I assume that have been fully informed of your duties here.", he inquired.
+
+"Well, of course, my only duty is to assist you in any way I can and to the best of my ability", Orin replied, taking a sip of brandy. 
+
+"But beyond that I have been told that my primary duties will be instructing your two young daughters in their studies", he continued, "Math, history, geography, language and of course, lettering."
+
+"I don't think that you will find much problem with them. They are sweet girls, I can assure you that I keep a civil house and expect my daughters to respect their tutors as they would have them respect me", Tosca replied. A smile crept across his face as he continued, "Though if I know girls, that means we have only a few years of civility left".
+
+Orin smiled politely in return, before Lord Tosca continued. "My wife looks after the children's education, and she will instruct you on the specifics that she would like you to cover, and how to do so.
+
+ "Like all mother's, she can be very...", Lord Tosca paused, for a second before continuing. "particular, when it comes to her daughters well being. I suspect, that no matter what you do she will find something that she would like altered. Do your best to humor her".
+
+"Of course, Sir", Orin acknowledged, keeping his voice flat. It was one thing for a Lord to criticise his own wife, but Orin suspected that if he ventured even partial agreement he would be likely to offend.
+
+"This apprentice of yours...", Tosca inquired. "Does she also tutor?"
+
+"Yes, Rosie is an incredibly bright young woman, Sir." Orin replied. "She is very knowledgable about the ways of the court and propriety. I think that your daughters will really like her."
+
+"That is good. I sometimes worry that they don't have any older girls to look up to. All these city girls are spoiled brats. I would like them to have an intelligent person around."
+
+"I am sure she will be an excellent role model sir".
+
+"And what of her station?", Edward Tosca inquired. "Not that such things concern me much, but I suspect that there are some members of my house that will not want my daughters spending much time with commoners."
+
+"She is a a minor noble of Verris", Orin replied smoothly. The cogs turned in his head as he sensed an opportunity.
+
+When speaking with a nobleman you had to learn to read between the lines, and there was clearly a question behind the question here. Orin had never mentioned, or given any reason for the lord to suspect that his apprentice was a noblewoman. 
+
+Yet clearly, Tosca hoped that she was. The lord in front of him clearly detected a chance to profit, depending on Orin's response. A noble ward within his house would be a powerful piece that Lord Tosca would be able to play. 
+
+And if there was  chance for Edward Tosca to think he could profit then Orin definitely could.
+
+"Both her parent's died in the Blood Plague about 10 years back.", Orin explained.  "Her relatives arranged for her to get a top quality education with The Guild, until she comes into her majority"
+
+"How tragic", Edward Tosca said, with the smallest hint of sadness. "And her inheritance. Is it significant?"
+
+"Hardly, at least not in monetary terms. But her title will ensure that she will be able to find a husband from among the rich merchants looking for a bit of status. So she has good prospects"
+
+They both took long draws on their pipes, each thinking their own thoughts. Orin had sunk a hook, but whether he had caught a juicy trout or vicious marlin was as yet unclear.
+
+Clearly Tosca was wondering whether there were any political advantages he could get by marrying one his family members into a Verrisian noble house. 
+
+He probably considered a great fortune for this asset to drop into his lap, but Orin might be in a bit of trouble if he was now seen as a liability. If Orin let it be known widely about Emlyn's supposed nobility he would greatly elevate his status, and possibly cause problems for Tosca.
+
+But there would be little that Lord Tosca would be able to do to Orin directly. No, instead he would try to divide Emlyn from him, offer her a better life full of the joys of the aristocracy.
+
+Or perhaps, he would throw a young lieutenant from a friendly family her way. Try and seduce her with a sharp uniform and flattering words.
+
+Either way, Orin liked having options. Even a bad choice was better than no choice, and the more choices that Orin got to make the better he could play the great game.
+
+"Well, I am sorry about her parents. I hope that she can find a kind of family in this house", Tosca said finally. "And you as well of course"
+
+"Of course. I am sure we will appreciate your hospitality greatly Sir"
+
+
+5.
+---
+
+Emlyn wandered the long twisting corridors, asking the occasional guard for directions before finally coming to her destination.
+
+Faces turned to look at her, as she stepped into the large stone room that marked the servants dining hall. Emlyn's eyes scanned the long wooden table where servants of all ranks and masters say with meals in front of them, searching for Mary among the many faces.
+
+A wave went up from the end of the table and Emlyn smiled widely as she made her way to where Mary was sitting.
+
+"Over there", Mary said, pointing towards the corner of the room where a large bowl of stew was slowly cooling, with a stack of plates and cutlery accompanying it.
+
+"Glad to see you came to join us", Mary said as Emlyn dropped into the seat next to her. "You look hungry", Mary exclaimed staring at the mountain of food heaped onto Emlyn's plate.
+
+Emlyn blushed bright red and Mary let out a high, bubbly laugh. 
+
+"I am just joking!", she said touching Emlyn affectionately on the arm. "I am sure you have had quite a journey!".
+
+"Three weeks", Emlyn responded politely, starting to work on her food. "And nothing but ship's rations". She could feel many eyes on her and Emlyn just hoped that she hadn't made a fool of herself yet.
+
+"This is Jake, Ben, Samantha...", Mary said, going around the table, oblivious to Emlyn's discomfort. "This is Emlyn everyone", she said once she had introduced everyone. "She is the apprentice of Lord Tosca's new tutor!".
+
+A smattering of welcomes and greetings where directed Emlyn's way. 
+
+"So good to meet you!", said Jake, who was sat next to Emlyn. He must have been in his late teens Emlyn guessed, and quite attractive.
+
+"No, don't you even start Jake", Mary said leaning over Emlyn pushing the boy back with her hand as he laughed. "Don't you listen to this one Rosie. He is all sweet words at first, but it doesn't last".
+
+"Hey, that's not fair!", Jake retorted. "Defamation of character!", he replied as he returned to his food.
+
+The babble increased as everyone returned to their previous conversations. Emlyn studied each of her new acquaintances faces, and going through their names again. Orin would be most upset at her if she wasn't able to recall every name and face with absolute precision later. 
+
+The food slowly disappeared from her plate while Mary chatted to her happily, with Emlyn returning the occasional comment to keep the conversation flowing. Mary didn't seem to mind Emlyn's quietness and had soon informed Emlyn of all the latest gossip in the keep.
+
+The talk about town was all about the mobs that were forming in the principalities. Prince Alex Tyne, had just marched out of the city two days ago to quell the uprising and there were a lot of rumors flying across the table.
+
+"I heard that they were led by giant tiger, who walks among the rebels camp and tame as a cat, but fights alongside them, during the battles"
+
+"Prince Tyne is going to execute half of all the rebels to teach them a lesson about loyalty", another person ventured.
+
+"Don't be ridiculous, if he kills half the rebels who is going to bring in the crop at harvest time?", another servant yelled. "I heard he was simply going to let his soldiers get the pick of their wives and daughters to bring home with them!"
+
+A loud laugh went up from the table, and Emlyn quickly turned to ask Mary what everyone was talking about.
+
+"Prince Alex?" Mary asked increulously. "Wow, you must have come far if you don't know who Prince Alex Tyne is."
+
+Mary's unspoken question hung in the air, but when Emlyn didn't answer it Mary continued. "Prince Alex Tyne is eldest son of the richest family in Kris. After the Royal Anders line itself, of course."
+
+Mary went on to describe Alex Tyne's wedding to Catherine Anders. The description that Mary gave was much different to the power grab that the Tyne family had made by marrying their inheriting son to the inheriting daughter of Kris. 
+
+As Orin had said, she would be best to play it ignorant of current affairs, until she had a better understanding of the mood of those around her.
+
+Mary seemed to imbue the event with some sort of otherworldly beauty, as though she was unable to fully express it in words.
+
+"Of course, I was only a girl when it happened. It was about six years ago now. Anyway, he is probably going to be away for the rest of the summer. Which means that the keep will be quite a lot quieter."
+
+"Oh?", Emlyn asked inquisitvely.
+
+"Well, he has taken a good number of his best lords and each of them took a significant number of their personal guards. So there are far fewer men in the castle than we would usually have at this time of year. 
+
+"Even in winter we normally have more people here. Less work for me to do, though I am sure they will find something for me to do."
+
+"Indeed, well enjoy it while you can", Emlyn said, as she cleared the last morsels of food from her plate.
+
+"I will do. Speaking of which, it is nearly time for me to get back to work.", Mary replied, as she rose from her seat. "The nobles will be making their way to dinner, and I need to go and restock their fires while they are out of their rooms."
+
+"Oh, take me with you!", Emlyn exclaimed, grabbing Mary by the arm with an excited look on her face. 
+
+Mary's face fell, momentarily and just as she was about to reply Emlyn interrupted saying,  "I left the door of my room open, and I bet it would be way faster to use the servant entrance than head back the way I came!"
+
+"It'll be dark! And dusty, you will get your clothes all dirty!"
+
+"I don't mind!", Emlyn said, trying her best to sound too excited to give in.
+
+"Of course you don't! I am the one who is going to have to wash them!", Rosie said, with a mock offence, both of them breaking out in huge grins.
+
+Mary looked both ways before, looking out for any potential witnesses to their crime before whispering, "Okay, but be quiet about it."
+
+She beckoned for Emlyn to follow her as they left the dining hall, heading down the labyrinthian halls that made up the servants passages. 
+
+Mary stopped along the way to light a candle and pick up a heavy pack of firewood, which she slung over her shoulder with surprising ease, before continuing on way.
+
+With a final glance around, and after confirming that the coast was clear, Mary opened a small door and walked into the low stone corridor that provided the means by which the servants were able to travel unseen by those above their station.
+
+Emlyn's mind reeled as she tried to map out the routes were taking, wondering how far she had traveled and how far she would have to go. 
+
+They were hardly the dark catacombs that Mary had made Emlyn suspect she would be subjected to. The roof was low, the path narrow and the light from their candle barely lit their path. But the walls were made cobweb free and the floor had clearly been cleaned recently.
+
+Left, right, straight on through the junction, left…
+
+Emlyn's path back to her room, was significantly longer than it had taken her to reach the dining hall he first time. But Emlyn suspected that without having to walk with a heavy stack of wood, she could probably make pretty good time.
+
+But beyond that, Emlyn marvelled at the massive advantage this route would provide her. The ability to travel between rooms without being seen by the eyes of the wary guards would be a massive advantage when it came time for her to start finding out the secrets hidden within these walls.
+
+Of course, she would have to make sure that she wasn't spotted wandering these halls alone. Rumors among the servants of Master Tomlin's apprentice wandering around the servants halls late at night wouldn't do them any favours.
+
+"Here we are", Mary announced, pushing on the door leading into Emlyn's room. Mary dropped the bundle of wood to floor with a crash and Emlyn followed her in.
+
+"There we go, barely a mark", Emlyn replied, dusting off her dress automatically.
+
+"That's a relief", Mary replied as she heaved the wood back onto her shoulder as she crossed the threshold into Orin's room and began stacking some of the wood next to the fire, and throwing a couple of the larger logs into the hearth.
+
+"My master still isn't back", Emlyn said quietly.
+
+"No, I suspect that he will likely, stumble in sometime before dawn", Mary replied, as she straightened up, making sure everything remained clean.
+
+"That doesn't seem like Derin at all", Emlyn said. "I can't imagine ever seeing him drunk"
+
+"It  is very difficult to turn down a drink from Lord Tosca", Mary said non-comitally. "I must be off now, I have many more rooms to get to"
+
+"Thanks for everying", Emlyn replied as Mary made her way back to the servants door.
+
+"That's no problem. If you ever need me again, just pull on the cord", and with that Mary slipped back into the darkness.
+
+6.
+---
+
+The darkened hallways of the Unbreakables Hold was not a place that The Captain of the Guard would want to find himself. How many assassinations had been planned in these dark corridors, how many lives deemed to "dangerous for the realm" to continue?
+
+During the majority of his career he had looked upon the Guild of Royal Assassins, with disdain. While they undoubtably had their uses, he would much rather deal with the dangers directly, a sword in hand and with the law as his shield, rather than with a poisoned dagger in the dark.
+
+And yet here he was. For the good of the realm he would seek out those which he detested, to follow the only course that was left to him and those he protected.
+
+"Well, I have to say, I never thought that you would be coming to me with a plot to assassinate the King, Captain", the Unbreakable said, the evil grin evident on his face.
+
+"Moreover", he continued, "I never thought that I would actually be considering it.
+
+"And yet here we are", the Captain replied.
+
+"Indeed"
+
+"But whatever you do, it must be absolutely unconnected to me, or anyone member of the Royal Court. It must be so water tight that even I believe that it was a genuine assassination"
+
+"I assure you, it will be"
+
+In the darkness, the Captain watched as the nameless assassin known only as Seven Hundred and Sixty Eight drew a wicked blade from within his robes with cruel efficiency. His mind reeled as he prepared himself for an attack, but his body did not even flinch.
+
+"In older times, one would seal a bond like this with blood", the Unbreakable continued, hovering the weapon openly over his outstretched left hand.
+
+The Captain, continued to stare, directly into his co-conspirator's eyes. He plumbed their depths for the last remnants of humanity, but came up short. He continued to breath in and out and his heart continued to beat, but beyond that the man in front of him was no more than a corpse as far as The Captain could determine.
+
+For a space of three breaths the dagger continued to hover between them, a threat only thinly veiled behind a question. The Captain, steeled himself, holding his hand by it's side, as the anxiety grew in him, greater by every second.
+
+Finally after a indeterminate eternity, the Unbreakable lowered his weapon.
+
+"An old tradition. Probably best forgotten", he said said. "I must be about my duties"
+
+"And I too", The Captain agreed, the blood slowly returning to his heart. And with that he  turned on his heel and left the forsaken place, just barely stopping himself from sprinting away as fast as he could.
+
+7.
+---
+
+Emlyn woke early. She splashed her face with water and got dressed before entering into Orin room. Dawn had barely cracked and she didn't expect Orin to be up yet, but she saw him sitting by his desk, crouching over his books.
+
+"Good morning!", he said, swivelling in his chair to look at her over the top of his glasses.
+
+"It is indeed!", she replied brightly, "I can barely remember the last time I had a good night's sleep in a soft comfortable bed".
+
+"I can see that", he noted, but his small smile fell as he asked her, "And your headaches?"
+
+"All gone now, seems like I just needed a proper rest"
+
+"Excellent, we have a big day ahead of us", he replied. "I have already ordered our breakfast, it should be arriving shortly.
+
+Emlyn nodded, and Emlyn sank into one of the luxurious arm chairs that adorned the room as Orin started filling her in on the details that he had learned the night before.
+
+"And the girls ages?", Emlyn inquired.
+
+"11 and 8. The elder is named Catherine and the younger Isabel.", Orin answered. "And as I am sure that you know, Catherine is the heiress, so unless you want a powerful woman seeking retribution on her cruel tutor when she comes into her majority, I suggest you be nice to her"
+
+Emlyn smiled, just as a knock came at the door. Responding to Orin's summons a maid entered bearing a large tray of breakfast, which she laid out on one of the small parlour tables before withdrawing.
+
+"And did Lord Tosca drink you under the table last night?", Emlyn asked as she helped herself to a large plate of eggs, bacon and toasted bread covered in marmalade. "Some of the servants were quite worried for your wellbeing"
+
+Orin laughed heartily, "Well, I will give it to the man, he knows how to entertain guests. I suspect that he will be quite put out if I don't pretend to be at least a bit hung-over this morning."
+
+"Speaking of which…", Orin continued raising the coffee pot in question, with which he started pouring two cups on Emlyn's nod.
+
+"But he seems like a good man", Orin continued raising his mug to his lips. "He is clearly quite provincial in his upbringing, clearly very used to dealing with his servants and the day to day running of his land. Unlike most of the other nobles that we will meet here, I suspect."
+
+Emlyn sipped her coffee as she mused about the strange new world that she was entering. By any real measure it wasn't that different from the life that she had lived so far.
+
+She had to listen to Orin and assist him with his chores. 
+
+As a child, she had been raised in the House of Eyes. While her gift made her particularly special, she was surrounded by other talented children learning to become spies. 
+
+Emlyn had been one of the more intellectual talented students. She picked up languages quickly and was fluent in the ways of numbers which she considered to be as straightforward as walking, if not more so.
+
+She spent a lot of time helping out the other students in her spare time and she didn't think that thus world be much harder than that.
+
+While there were many lessons in The House about codes and cyphers and secrets if moving unseen, there were far more about regular subjects. All students were taught three languages in addition to their native tongues, to varying degrees, as well as well as how to hide their accents. Perhaps not well enough to trick a native, but people always assumed someone with a strong accent was simply provincial.
+
+Of course, history, geography and of course politics was vital to their education. To understand in depth who had allegiance to who and what how that connection could be used to your advantage was invaluable.
+
+And the importance of knowing history, both recent and ancient from the point of view of every culture was absolutely essential if you expected to be able to gather information from the commoners in a pub. Nothing would make you stand out further from a crowd than not knowing their kingdom's great military victories, and it was best not to mention any defeats.
+
+"You nervous?", Orin asked as Emlyn went through her character in her head for the final time. Emlyn looked up at him with a blank expression. "Don't be", he replied with a smile. 
+
+When they had finished off the last of their breakfast, Emlyn headed back to her room to change into her formal attire. She brushed her back into a strict ponytail, which she then pinned into a bun in why she thought was a formal "tutorish" look.
+
+She picked a light grey dress to along with it, and after throwing it on returned to join Orin.
+
+"You ready?", he asked, dressed in his own robes of formal black. 
+
+Emlyn nodded, and they left to begin their masquerade.
+
+---
+
+
+"I think that you will find that my daughters are a truly wonderful pair", Lady Tosca informed them, pacing around the study in which they were sitting. She flitted between the globes and maps, the extensive library and the tools of geometry stacked on shelves throughout the room.
+
+Emlyn had never seen a such a beautiful room of learning in all her life. It was more of a  Library of Everything than a class room she thought.
+
+The sheer size flummoxed Emlyn. There must have been desks for thirty or more students, but the majority of the space was taken up by large variety of subject areas. Maps and Glboes in one area, portraits of kings and queens, and their accomplishments in another. There was a massive collection of stuffed fauna and pressed fauna in one corner and for those missing from the collection there were endless folders of painstakingly prepared illustrations.
+
+A massive window let in the morning light, which flooded over a massive table, used in the illustration of historic battles. Hundreds of little figures, stuck in a state of perpetual battle. The Battle of The Pine Soldiers, Emlyn spotted on the page of the book illustrating the battle in progress.
+
+"There is no spite or malice in them", Lady Tosca continued, interrupting Emlyn's thoughts. "And you will find them ready to learn"
+
+"I am sure we will", Orin replied.
+
+"As to the direction of their lessons, you will directing them primarily in history, geography, noble houses, languages and calligraphy", Lady Tosca informed them as she pushed a large ledger towards them. 
+
+"This is a record of all the lessons that they have undertaken so far, and their proficiency in them. You will of course keep it up to date, with your plan for a month in advance so that I may look over it and correct any misunderstandings"
+
+"Of course", Orin replied, as he opened the ledger to last entry highlighted by a thick ribbon running across the page.
+
+"Their previous tutor, left a plan for the next month", Lady Tosca continue indicating the pages of finely inked spidery letters.  "I expect you to follow them, after which I think you will have the freedom to choose your own lessons"
+
+"Excellent", Orin continued. Emlyn glanced at Orin for a split second before returning her  eyes to Lady Tosca.
+
+"Good, well, the girls will join you here at 11th bell", Lady Tosca informed them. "That should give you plenty of time to prepare your first lesson"
+
+"Thank you", Orin replied deferentially.
+
+"Well my husband has convinced me that my daughters are in good hands, so I will send for you if I need anything further", and with that Margret Tosca left the room.
+
+"She seemed very sure of herself", Emlyn quietly whispered to Orin, as she pulled the ledger in front of her and started examining its contents
+
+"No doubt just the eccentricities of a caring mother." Orin replied. "Lord Tosca told me that she might be a little earnest in her duties"
+
+"Well, I hope that it doesn't become a problem", Emlyn mused
+
+"Only time will tell. But either way it won't be affect our true purpose"
+
+Emlyn stood up from the table and started looking through the library shelves for the books mentioned in the next weeks lessons. Meanwhile, Orin started flipping back through the ledger examining their past lessons.
+
+"Oh this is interesting", he called out to Emlyn who had scaled a ladder to pick out a copy of 'Heridian History: A retrospective'. "It appears that these girls have been studying astronomy".
+
+Emlyn glanced down at Orin seriously, before slowly descending the ladder.
+
+"Interesting", Emlyn replied.
+
+Orin continued to flip through the ledger, pausing here and there to think about the contents.
+
+"Well, it doesn't look like we are expected to teach any Astronomy ourselves. Pity, I am sure you could provide some valuable insight."
+
+Emlyn, felt a cold sweat on her body with the thought of being discovered.
+
+"Yeah", she replied noncommittally. "Heridian History", she said finally dropping the book on the table.
+
+"Let's see what they think of the Heridian Wars on this side of the ocean then shall we?", pulling the book over to him as Emlyn scanned the ledger for herself.
+
+
+For the next couple of hours Orin planned his lessons, cross referencing the books, with his knowledge and the notes in the margins of the ledger until he was sure that he had a complete picture of what needed to be taught.
+
+Emlyn meanwhile spent her time going through the library, inspecting all the different shelves and their contents. The organisation system was not one that she had ever encountered before, and the positioning of one section seemed to have no bearing on any of the others. 
+
+In the end, she just sat in front of the index cards and looked up well known tomes to find which section they were in, and hunted from there.
+
+As the eleventh bell rung out loudly across the keep the doors were flung open by a pair of guards and two young girls where escorted in, their mother in tow and with regal grace the two girls crossed the library to where Orin and Emlyn stood formerly to meet them.
+
+"This is my daughter Catherine", Lady Tosca said indicating the taller girl who curtsied, "and Isabel", the other girl curtsied.
+
+"This is Master Tomlin and Miss Rosie", she continued, and Orin and Emlyn bowed and curtsied in return.
+
+"Alright then, I will leave you to it then", Lady Tosca said, clapping her hands together, and just as quickly as she had entered, left.
+
+As Emlyn watched the door swing closed behind Lady Tosca, Orin asked "Shall we sit?", and started pulling up four chairs in a circle.
+
+"So, what do you want to learn about?"
+
+Catherine, Isabel and Emlyn all stared at him. A moment passed and then another, before Catherine finally piped up, "Why Prince Tyne left. And who he is fighting. And why".
+
+"Hmm, a very interesting question. Haven't you been told that Prince Tyne has left to protect the kingdom?"
+
+"Well, I know that.", Catherine said, while Isabel nodded vigorously. "I just want to know why."
+
+Orin leant back in his chair, and adjusted his glasses, and looked back down at the ledger.
+
+"Well that is a great question Catherine. And did either of you know that all the answers you need, are right here in this room, if you only knew how to look for them?"
+
+Catherine and Isabel both shook their head, and if Emlyn hadn't known Orin better she would have felt incline to agree with them.
+
+"As I am sure you know, there has been a rebellion in the west, and as a Prince of the Realm, it is Alex Tyne's duty to protect his people and re-establish the rule of law.
+
+Now I can tell you who has rebelled, and why, but I think it will be a lot more interesting if we discover that for yourselves. Rosie if you would get the books on the Cutler's Rebellion?"
+
+8.
+---
+
+They slowly started falling into their routines, assuming their false identities and following them to the letter. 
+
+Orin was a naturally talented teacher. 
+
+He managed bring an intense energy to even the most boring and unintuitive subjects. His energy was contagious and the two girls quickly became as excited about their lessons as their teacher.
+
+Emlyn had also found herself falling in love with the two girls. Catherine was every bit as regal as her birthright required, a true leader of the house in the making. She was diligent and a hard worker, and had a good mind.
+
+Her sister Isabel was the more spirited of the two. While she took after her sister in terms of propriety, she was incredibly bright for a girl of only "eight and a half", and her quick wit often brought Orin to peals of laughter.
+
+Together, the two girls idolised Emlyn, seeing her as a kind of eccentric aunt, not quite family perhaps, but definitely one of them. From Emlyn's point of view, the five year gap between her and Catherine was like a giant chasm between, but Orin pointed out to her that most people saw them as almost the same age, perhaps Emlyn as the eldest of three sisters. Emlyn tried to take this to heart.
+
+And it seemed like the girls saw things the same way. Rather than treating Emlyn like they would most tutors, they treated her more like a their big sister, trying to follow her around in their spare time and so on.
+
+Not that their was much about Emlyn for them to imitate. Emyln and Orin had struck a quiet life, spending most of their time either delivering or planning lessons. Orin spent a good amount of time helping Lord Tosca with his duties, translation of writs and so forth.
+
+Emlyn meanwhile spent most of her free time reading in the library, or on clear sunny day, that were slowly growing shorter as winter approached, in one of the courtyards. There were many books that had not been available to her when she had lived in the House of Eyes in Verris, and she tried to read all that she could without seeming suspicious to anyone who inspected their contents.
+
+As younger sisters are wont to do, both Catherine and Isabel had started to imitate her. One particularly rainy day, Emlyn had retired to the library to continue her foray through "Angoran spice: The ingredient that revolutionised the maritime trading". 
+
+Emlyn loved to sit in the Library when it was raining; the hard gust of winds blowing the rain against the floor to ceiling windows created a kind of hypnotic percussion which combined with the warmth of the braziers placed her in a deep trance while she read.
+
+She had been sitting in her favourite armchair, it's large seat allowed her to cross her legs on the soft cushioned upholstery, and the embroidered panels on either side prevented others from seeing that she occupied it when she faced it towards the window.
+
+Out of the corner of her eye Emlyn noticed a the vigorous movement of Catherine and Isabel pulling their own chairs into a small half circle around the window. Emlyn peeked over the top of her book, as the two girls sat on their own chairs and began to read.
+
+A small smile broke out on her face as she noticed that they had both picked books similar to hers. Both were the drier more boring history books, figures and and tables, with long verbatim accounts of different trade agreements.
+
+Both girls sat down for a few minutes and made a good deal of turning the pages and trying to sit quietly. Isabel persevered for a few minutes but it soon became evident that she was wondering precisely when this was supposed to become an enjoyable pastime.
+
+While Isabel was bright for her age, if she was able to be understand more than one in five of the words in her chosen volume Emlyn would have been surprised. She wriggled irritably on her seat, and looked over the top of her book every few seconds, at both her sister and Emlyn, hoping that one of them would do something interesting.
+
+Her sister was very pointedly ignoring her, trying to show how maturely she could read, while turning the pages way to fast to be able to pick anything up, perhaps looking for the chapters that pertained to dragons or fairy princesses.
+
+Finally, Emlyn threw up her hands and scoured the shelves for some books that were more appropriate for them to read. They were slim pickings but the library contained some commentaries of recent events which were more digestible than most.
+
+Having settled down, the two girls seemed to quieten down somewhat and Emlyn wen t back to her reading.
+
+Emlyn didn't think much about the event until about a week later when Cathy returned with Isabel's book, requesting another one. Catherine explained that she had already read all of her own book and Isabel was still working her way through her book, and she would like some more to read.
+
+Within a few weeks of that, both girls had started to read quite thoroughly, making their way through the small number of appropriate books that were on offer. When those had run out, they had been forced to read other books, that were available, going through a large amount of the history and geography sections, reading all they could.
+
+Their reading became so voracious that Lady Tosca mused whether Lord Tosca might not find it more convenient to move the whole family to Royal Library of Rens, as it would surely be far more convenient for all involved.
+
+But Orin could see that he was really proud of his daughters, and he soon arranged a stipend for Orin to spend on acquiring more books for them. On the quieter evenings, Orin and Emlyn would be invited to eat in the main hall with the nobles and honoured servants, and Emlyn could just make out Lord Tosca asking his girls what they had learned today.
+
+In the jovial clamour of the hall, she couldn't make out their responses, but Lord Tosca seemed to enjoy their answers and had plenty of follow up questions. Lady Tosca didn't seem to share her husbands enthusiasm, but non the less she seemed to encourage the girls curiosity.
+
+Emlyn started taking a great pride in her work, but a growing sense of unease started building inside of Emlyn with each day that they failed to make any progress on their true mission. 
+
+Across the sea and many miles away, their country was relying on them to do their duty, but from Emlyn's point of view, they were no closer to completing it than they had been when they arrived.
+
+So it was with great relief that one night Orin slipped Emlyn a small slip of paper one night in their room. 
+
+She opened the note and her heart skipped a beat with excitement.
+
+"11th Bell. Get Ready".
+
+9.
+---
+
+That night she sat and read for a while until the tenth bell rung out, when she declared that she would turn in, as she did normally. Summer was only just giving way to autumn and the sun had just set, rendering enough darkness for her to get to sleep.
+
+But once she had retreated to her room, she instead flipped an hour glass, started to make her preparations.
+
+It had always been a possibility that they would have been observed. In fact, Orin considered almost a certainty, that at some times, they would be spied upon from the secret corridors that no doubt ran throughout the castle.
+
+But no one could see all places at once, and after a few weeks of boring monotony, any spies would likely have stopped watching them, except for the occasional checkup now and then.
+
+The thought of someone looking in on Emlyn at her most intimate moments, sent a shiver down her spine. All the worse for not being able to do anything about the possibility; changing her behaviour at all would look incredibly suspicious.
+
+And, of course, the hypocrisy of not wanting to be spied on was not lost on Emlyn. Still, they had done all they could so far to avoid suspicion and it was time to make it count.
+
+After glancing to make sure that the servants door was still locked, Emlyn swung her trunk onto her bed, and with a bit of fumbling, coaxed the secret lock open. A panel at the bottom of the trunk popped open, and Emlyn reached in and pulled out a smooth dark, piece of cloth.
+
+She threw the coat her shoulders, the dark material fitting her perfectly. She pulled the hood over head, where it obscured her face from the light, but allowed her to turn her neck and head without obstruction.
+
+Reaching down into the trunk again, Emlyn pulled out a pair of gloves and a thick belt, which she fastened around her stomach like a corset.
+
+She arranged her room neatly, making sure that anyone who inspected it would find nothing untoward about it, and checked and rechecked that she had everything.
+
+Barely half the sand had run through the hour glass when Orin peeked his head in, and with a nod, she followed him.
+
+Orin was dress head to toe in black. His coat hung tightly around him, dropping to the ground, stopping just short of his leather shoes, which were bound in cloth to dampen the sound of his foot prints. Black cloth was likewise wrapped around his head, obscuring his face, with his two eyes peeking out into the darkness.
+
+"It is time for us to begin our mission. The plan is simple, we head to our predecessor's room, and search for any notes that he may have left behind."
+
+Emlyn nodded, as she wrapped the last piece of cloth around her hands.
+
+"Meranis is just dawning", she whispered, feeling the warm rays rising above the walls of the keep.
+
+"There are many Scryers, be careful not to be seen".
+
+"I know", Elmlyn replied.
+
+Orin drew the shutters of the window open and stared down into the courtyard below. One soldier was patrolling on his rounds, but his eyes never flew to the rafters where Orin and Emlyn would be making their move.
+
+With a big step Orin positioned himself onto the windowsill and craned his neck to look at roof four floors above him, hooked rope in hand. With a big breath, Orin planted his left foot on the windowsill, and with his left hand gripping the frame tightly, he threw his body out over the cavernous expanse below.
+
+With nothing but air below him, Orin started to swing the hook in a short circle, slowly accumulating speed until the hook started to whistle and he released it in a  flying arc towards the roof far above him.
+
+The hook sailed through the night air, pulling the rapidly uncoiling rope behind it. For a few seconds the rope continued to fly, but the inexorable pull of gravity could not be denied, and hook eventually slowed to a standstill and started to fall.
+
+With a soft clink the hook fell upon the roof, and their hearts caught in their throats and they listened out for any cry of alarm or disturbance. But the warm night air remained quiet, and the guard below them showed no sign of concern in the pale moonlight.
+
+Slowly, Orin started to pull on he rope and after a few seconds of heart stopping scrapes, the rope caught against the  crenelations above them.
+
+With a series of jerks, Orin tested the rope, but it held and with an outstretched arm he offered the rope to Emlyn. She took it in her hand, and after running it through a series of metal loops on her belt, she leapt over abyss.
+
+The rough stone wall provided plenty of foot holds and Emlyn started to ascend. 
+
+Her fingers caught the wall deftly and her back strained as she pulled herself up brick by brick, pulling the rope through her belt every few steps, before continuing up.
+
+Finally hitting the top of the building she rolled over the crenelations and, after checking the hook was still stuck firm, she gave it a series of jerks to inform Orin to follow her.
+
+The rope went taught as Orin began his ascent, and a few moments he threw his arm over the crenellations. Emlyn caught his outstretch hand and pulled him up.
+
+After a brief pause to wrap the rope around his waist, Orin signalled to Emlyn that he was ready to proceed and began walk gingerly along the edge of the roof, with Emlyn in tow.
+
+Under the clear night sky Emlyn could see full majesty of Kris. The city flowed from the palace, the buildings covering ever inch of the city right down the ocean upon which the small fishing boats could be seen rocking on the waves.
+
+In the darkness the city seemed to take up a romantic air. The lights from the lamps and fires within the gave a warm homely feel to a what would be turning into a chaotic miasma of business in just a few hours.
+
+The a cool sea breeze blew inland, carrying the smell of brine, clearing Emlyn's head and bringing on a certain feeling of nostalgia for days long past.
+
+With a sudden halt Orin threw up his arm, indicating for Emlyn to stop. With a intense look Orin pointed down to the courtyard.
+
+Emlyn glanced down and spotted a few guards far below.
+
+"The accountant's department is four windows down.", Orin whispered as he drew the rope from his waist and started to slowly lower it down along the wall. "Slip the window."
+
+Emlyn nodded, before taking the rope and lowering herself over the edge. Her heart beat as she fell into darkness below her. One, two, three, four.
+
+At the fourth window she pulled the rope in a complex pattern and let it hold her in place as she took a glance through the glass.
+
+A dark, deserted hallway greeted her, made visible only by the light of a brazier reflecting off the wall at the end. She slipped her knife through the crack between the window frames, and soundlessly lifted the latch free, as she pulled the window open and slipped inside.
+
+She crouched the in darkness of the windowseat for a few seconds until Orin dropped next to her. "So it appears that the accountants are all out celebrating tonight, so we shouldn't be disturbed".
+
+Orin walked a short way down the corridor before drawing up at a door and slowly opening it. He glanced through it carefully and then slipped in. Emlyn followed.
+
+It was a simple room, not like Emlyn and Orin's apartments, which were extravagant by comparison. A bed lay in the corner and at it's foot sat a small desk, on which a set of papers lay in an orderly manner, next to a oil lamp which Orin lit.
+
+Orin stood in the centre of the room and looked around, his hand resting on his chin in contemplation. Emlyn scanned her eyes around the stark stone clad room, looking for any clue as to it's previous occupant's notes.
+
+Orin wandered around the room, the lamp in his hand illuminating the surfaces which he inspected with grim determination, using his hands to feel the edges of stone and shifting the things here and there, before replacing them carefully in their original condition.
+
+Emlyn stared at the ground and ceiling, but no flash of inspiration came to her. The possibility that he had not been able to hide any of his notes was all too possible.
+
+"There's nothing here", Orin finally whispered, the disappointment bitter in his voice.
+
+"He may have hidden his notes elsewhere. Coded messages in the accounts or the ledgers, or he may simply have hidden them amongst his associate's belongings."
+
+"I don't think so. No, he would have updated his notes every day, he couldn't have kept sneaking into another persons room."
+
+Orin extinguished the lamp, and with one final scan, they left the room.
+
+--->
