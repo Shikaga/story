@@ -92,11 +92,11 @@ The cry rang out clearly through the bright courtyard, as Emlyn hung tightly to 
 
 She could hear laughter beginning to build from those watching from the ground below. She wanted for everything to be over, to be anywhere but here. But she only had two choices. Downards, towards those mocking voices far below, or upwards, where Orin's outstretched hand was just out of reach.
 
-Emlyn thought that she could probably bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything to her. He would just tell her how proud he was that she tried her best and that no other ten year old would have been able to do what she could.
+Emlyn thought that she could probably bear the ridicule of her peers, but the thought of disappointing Orin she could not. Not that he would ever say anything to her. He would just tell her how proud he was that she tried her best and that no ten year old should ever be expected to do what she could.
 
 But she wanted to do more than that. She wanted to make him proud of her, to exceed his expectations. Trembling, Emlyn slowly released the death grip she had on the windowsill and reached up, trying to find purchase on the the smooth stones of the wall she was climbing. Her legs followed her, and she let her body take over as she resumed the climb. She felt the rope around her once again begin to taughten as she was belayed from the ground.
 
-Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblibion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretched them out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
+Her body ached as she heaved her body up the wall inch by inch. Her fingers had gone completely numb with the exertion of trying to prevent her body from plummeting into oblivion. She took it one step at a time, keeping her training in mind. Her legs burnt as she stretched them out wide for a brick that was jutting out a little more than most, and pushed herself up on it.
 
 And as she once again stretched out hand for a hold, she felt Orin wrapping his fingers around her forearm, and she was pulled onto the roof in one smooth motion. Emlyn could faintly hear applause from her peers far below.
 
@@ -104,19 +104,29 @@ And as she once again stretched out hand for a hold, she felt Orin wrapping his 
 
 She just stared at him, and tried to catch her breath. Her hands went to her waist as she undid her harness. She slipped it off, and tossed it off the side of building, where it promptly descended to take its next victim.
 
-"Time to get up Emlyn", Orin said, as she took a step forward, heading for the stairs.
+"Time to get up Emlyn", Orin said, as she took a step away from the beckoning edge.
 
-She swivled on the spot to look at Orin. "What?", she began to ask, but as she formed the words the world started list beneath her, her feet slipping as the roof started careening sideways. She crouched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happening around him.
+She swivled on the spot to look at Orin. "What?", she began to ask, but as she formed the words the world started to list beneath her, her feet slipping as the roof started careening sideways. She crouched down, trying to keep her balance, as the roof started to pitch in the opposite direction. Orin simply stood there, seemingly oblivious to what was happening around him.
 
-"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin was now completely oblivious to her very existance, his complete attention fixed, a one thousand yard stare into the distance.
+"Help me!". Emlyn tried to scream, throwing her hand out to Orin, but her words caught in her throat and her voice was silent. Orin was now completely oblivious to her very existence, his complete attention fixed, a one thousand yard stare into the distance.
 
 As the roof once again rolled uncomfortably beneath her feet, Emlyn swung her head to follow Orin's eyes gazing into the great beyond.
 
-The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of dispair. She could feel the embers on her face, and she smelt her hair begin to singe in the billowing heat.
+The horizon burned, a choking fire engulfing the land, the smoke billowing up in a black curtain of despair. The inferno raced towards her, growing larger and larger, until it took up whole horizon, towering far above her, though it was still many leagues away.
 
-The screams of thousands rose up above the crackling furnace, as soldier's warcrys mixed with their screams, resounded through the air as they struck at each other brutally. 
+She stood, transfixed by the hypnotic flames. She wanted to run, to flee the oncoming destruction, but the ground continued to roll beneath her feet. Besides, she doubted she could order them to move anyway.
 
-"It's time to wake up", Orin repeated, his dead eyes surveying the horror with calm acceptance.
+The fire continued to approach, the noise thunderous crackling of the flames rising to a deafening pitch, as she continued to stare, though the brightness of the conflagration was starting to hurt her eyes, as her tears started to run down her cheeks.
+
+Her brain screamed at her to run, to hide, to do anything but she was fully transfixed in paralytic horror now. And all the while Orin just stood on the edge of the wall and watched it approach, with a passive smile on his face.
+
+She could feel the embers on her face now, she smelt her hair begin to singe in the billowing heat as even her tears were seared in the intolerable heat. 
+
+The fire finally engulfed them entirely. Her entire body was swallowed in flames, the heat drawing screams from her lips as her entire body was consumed by them. 
+
+Now that she was in the conflagration itself she could finally hear clearly. The screams of thousands rose up above the crackling furnace, as soldier's warcrys mixed with their screams, resounded through the air as they struck at each other brutally. 
+
+"It's time to wake up", Orin repeated, his dead eyes surveying the horror with calm acceptance, his body someone impervious to the flames that took all else in it's path.
 
 Emlyn tried to move, to scream, to strike out at the pain and suffering that was engulfing her. The heat rose, and she tried to shield her face, and she felt her tears hiss as they evaporated off her face in the searing heat. The fire had risen to a deafening roar, and the smoke stung her eyes, blinding her.
 
@@ -144,7 +154,6 @@ Her dreams were getting worse. Orin tried not to show it but Emlyn could tell th
 
 While Emlyn may be sick and weak from withdrawal from an unseen force, Rosie was a young hale young lady with an energy for life. Emlyn meditated on her alias, taking on her second skin, and preparing for the day ahead.
 
-
 The ship rocked lightly in the calm waves, and after just a few minutes later Rosie crossed carefully to her trunk.
 
 Emlyn strained her eyes as she picked out a new set of undergarments and her best dress. She dressed quickly, and after a quick glance in her looking glass, she left the cabin.
@@ -163,23 +172,66 @@ Emlyn found Orin leaning on the port bow, taking in the salty air and fine mist 
 
 Orin simply nodded.
 
-The city grew steadily, and the roar of the first mate with it, who made swift use of his switch on any sailor he thought wasn't working hard enough, while the captain watched passively and adjusted his suit, making sure he looked his best. The men heaved, droppping and lifting sails, and guiding the ship slowly and securly to its dock.
+The city grew steadily, and the roar of the first mate with it, who made swift use of his switch on any sailor he thought wasn't working hard enough, while the captain watched passively and adjusted his dark bluesuit, making sure he looked his best. He looked carefully at each brass button, making sure it was still polished to its mirror shine.
+
+The men heaved, dropping and lifting sails, and guiding the ship slowly and securely to its dock.
 
 The ship glided to a stop and in one smooth motion ropes were thrown to shore, and the massive ship was drawn into the port, a thousand parts moving as one, bringing their journey to an end.
 
 The roar of dockworkers filled the air as Emlyn stared at the men standing on the peer, staring up at the ship and speculating wildly among themselves what goods there would be to trade.  
 
-The sailor's abandoned their duties and leant wildly over the railing shouting down to their aquaintances on the dock below, and whistled to the ladies of the night who flaunted themselves eagerly.
+The sailor's abandoned their duties and leant wildly over the railing shouting down to their acquaintances on the dock below, and whistled to the ladies of the night who flaunted themselves eagerly.
 
 The first mate was on them quickly and with much bellowing and liberal use of his switch managed to return his derelict crew to their duties. With much bellowing the ship was quickly prepared and a gangplank was dropped to the awaiting officials below.
 
-With a big smile and hand outstretched, the captain descended down the narrow gangway to the dock below. The officials smiled and exchanged plesantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
+With a big smile and hand outstretched, the captain descended down the narrow gangway to the dock below. The officials smiled and exchanged pleasantries. Gifts were swiftly bestowed by the first mate, three large bottles of fine brandy, and they were invited upon the ship to inspect the holds.
 
 And with the formalities concluded, it was time for them to depart.
 
 2.
 ---
 
+"How are you feeling?", Orin asked gently.
+
+He was standing by the closed door, listening to the porters their footsteps receded into the distance.
+
+Their luggage stood in a pile in the corners of the parlour room. Light shone in through the windows, reflecting off the velvet curtains and casting red warmth across the room.
+
+Emlyn sat on one of the cushioned chairs that sat in the centre of the room, next the smaller of the two ornately wrought tables, holding her head in her hands and trying to get her head as close to the ground as possible.
+
+She didn't answer.
+
+Once sufficiently happy that the servants had fully departed, Orin locked the door and went crouch next to Emlyn, taking one of her hands and squeezing it.
+
+"I'll be alright", she finally replied, with a guttural choke, as though she had only just been able to get the words out without anything else coming up.
+
+"I'm sorry Emlyn.", Orin continued to whisper. "If I had known that this journey would have taken such a toll on you, I would never have asked you to make it"
+
+Continuing to stare at her shoes, Emlyn simply said, "I would have come anyway"
+
+"I know you would have, but"
+
+"Meranis is rising", Emlyn interrupted. "The window"
+
+Emlyn's left arm scrambled around Orin's shoulder as he heaved her to her feet and shuffled her to the eastern window.
+
+Emlyn's face changed almost visibly in front of Orin, as though a strong cool breeze blew over her in the doldrums of midsummer, though the window was firmly closed and her hair did not move bit.
+
+She let out a big sigh, and slowly unwrapped her arms, and took on more of her own weight, as Orin let her down gently, until she was finally fully under her own control.
+
+"That was worse than usual Emlyn", he said, the softness of his voice gone, now that he could see that she had regained some of her strength.
+
+She ran her hands through her long hair, before replying.
+
+"Yes. We are further south than I have ever been. Meranis only just makes it over the horizon now. I have been getting less and less time every day"
+
+"I need you at your strongest now Emlyn", Orin replied. "This isn't training anymore. We cannot afford any mistakes"
+
+"I know Orin. I will adjust. It will take me a few days, but I will adjust".
+
+"Well, let's hope that we have a  few days." Orin said, walking to the pile of cases and pulling one out and throwing it on the main table. "It has been just over month now since we last received a message from Lion Rampant. We may need to act quickly on what we discover"
+
+He flipped 
 
 <!---
 
