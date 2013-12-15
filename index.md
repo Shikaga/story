@@ -378,7 +378,70 @@ Orin returned to the wall, while Emlyn thought deeply. Orin replaced the wooden 
 4.
 ---
 
+"Can you feel it Jake?", Marcus inquired.
 
+"Just about. It's definitely coming from that house over there", Jake replied.
+
+The darkness was almost absolute this far into the provinces. The inn over a mile down the road leaked the occasional spec of light as someone stumbled out on their way home, letting the general rabble rousing resound in the cool night air.
+
+But by and large, it was the stars alone in the moonless night that their vision was lit. The stars, and something else entirely.
+
+The houses were far apart here, not like the dense city streets of Rens all those hundreds of leagues away, and that was fortunate for the two of them. In a city like Rens, it was almost impossible to know where your quarry was hidden, even if you could sense them directly.
+
+The presence of PlanetDrinker was large and distinct, especially at this time of the cycle, where planet in question was near sunset or sunrise, and threw a long shadow across the ground.
+
+It wasn't something that you could see, it was more of a feeling, an inkling that something wasn't quite right, a sort of coldness that you could feel when you looked in a certain direction.
+
+It wasn't particularly strong, and if you weren't looking for it, you probably wouldn't notice unless you crossed directly over the shadow, in which case, you were probably so close to the PlanetDrinker that it was already too late.
+
+But if you stood, and focussed in just one direction, you could sense it, it was there, like a splinter in your mind.
+
+"So, what is the plan then, do we take him?", Jake asked after a long pause.
+
+"No, not just yet. We have time on our side. Meranis will be down until well into tomorrow morning. We will take him just before dawn, when he is at his weakest."
+
+Marcus turned his horse and started down the road with Jake on his following in his wake.
+
+They trotted their horses towards to the town, where they had rooms at the local excuse for a tavern, which was little more than bed and a place to stable their horses.
+
+"Woah there", a voice called from the darkness, and they both pulled their horses to a stop.
+
+Two other men pulled up their horses in the darkness, and fixed them with a stern look
+
+"And who would you be?", he inquired in an arrogant voice, that seemed to warn that he better like the answer.
+
+"Just two weary travellers, heading back to the tavern, sir", Marcus replied.
+
+"Indeed", the man replied. "And why would you beat out at such a late time, 'ey?"
+
+"Sorry sir, we had business down yonder", Marcus replied, pointing down the road.
+
+"Did ya?", the man replied. "Well, you should know that you should be a little safer at night sir, there are strange things afoot around here"
+
+"What things, sir?", Marcus inquired.
+
+"Murders, good sir", he replied a faint hint of eerie suspense in his voice. Jake wondered whether this man had been waiting all night to tell this story.
+
+"Murders of a most brutal nature, I'm afraid", he continued. "That is why we are out at night, patrolling to make sure no further danger comes to any who wander these roads"
+
+Marcus just stared at the man for a minute before replying.
+
+"Well I am most certainly grateful for your protection Sheriff, I will be sure to watch myself"
+
+"Be sure you do", the sheriff replied, and with that trotted on, whispering conspiratorially to his silent companion.
+
+"What do you suppose those provincial hicks would do if they actually encountered a Planet Drinker?", Jake asked as soon as they were out of earshot.
+
+"Probably yell to 'Burn the Witch'", Marcus replied, kicking his horse to a walk, and continuing into the village. "That is if they were able to get the words out before they died"
+
+"Well, that is why we are here", Jake replied. "No of these people can really be expected to defend themselves against such monsters"
+
+"No", Marcus replied, "I suppose they can't"
+
+5.
+---
+
+Emlyn...
 
 <!---
 
