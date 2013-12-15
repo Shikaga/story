@@ -281,6 +281,102 @@ Orin opened his journal, and with exquisite patience, dipped his mechanical quil
 > I will continue to monitor her, but if her condition continues to worsen medication may be required.
 
 3.
+---
+
+Emlyn woke to the smell of roast vegetables and fresh bread. After two weeks of seafood rations her mouth watered instantly.
+
+She hopped out of bed, suddenly feeling the best she had in days, and returned to the parlour room.
+
+Orin turned his head as he entered. 
+
+"I was just about to come and get you", he said, shuffling parchment back into one of his leather folders. "Lunch has just arrived", he continued indicating the plates laid out on the table.
+
+"What time is it?", Emlyn asked as she sat down, taking up the spoon eagerly as she waited for Orin to sit down opposite her so that she could start her meal. She suddenly realised that she was completely famished.
+
+"Just passed the fourth afternoon bell", he said, as he sat down and started on his own soup.
+
+"You let me sleep the whole day away?"
+
+"Not like there was anything I needed you for. Besides, I am sure that there will be plenty for us to do tonight"
+
+"What is the plan then?", Emlyn enquired.
+
+"Eat up, and I will tell you"
+
+---
+
+As the sun started to fall below the horizon Emlyn and Orin headed out of The Crystal Flute to the well lit cobble streets that marked the upper class neighbourhoods of Rens.
+
+Their fine cloaks let it be known that they were not to be disturbed by the local minutemen, that they were on important business, and that any disturbance would result a strong word with their superiors.
+
+As they headed down the streets to the dock, Orin suddenly changed direction and popped down a dark alley. Yellow lights burned in windows far above, shining just enough light to see the rats that scattered before them, their claws clattering quietly against the path.
+
+As he walked Orin took off his ornate cloak and with one smooth motion turned it inside out, before throwing it onto his back once more. Pulling the hood over his head, the transformation into a weary mercenary was complete, the dark wool and fingerless gloves keeping warm against the elements as he headed to the docks for some late night carousing. 
+
+Emlyn followed suit, trying to hide her face, and stay close to her master. Best not to appear as anything other than a simple young roughian, any girl on the streets at night would arouse suspicion. Well, that or certain assumptions as to her occupation.
+
+Orin stepped out onto the street again, and Emlyn could somehow tell that they were no longer in the same neighbourhood as before. Their regal clothes that they had just hidden would have made them stand out far more than their fisherman's clothes would have before.
+
+And while their poor clothes would have merely had them escorted from the streets by overly enthusiastic guards, here their rich garments would mark them out to all footpads as gold simply waiting to be plucked.
+
+Although unfortunate would be the thief that tried to steal from Orin, that would be a mistake that one would not forget in a hurry.
+
+No, it was not for safety that they had pursued their disguises, but for their need to travel undetected. No one should remark upon where they were travelling tonight.
+
+Orin took a circuitous root, requesting once in a while that Emlyn should hide in the shadow of a doorway and watch. He would double around the narrow buildings before returning to her, and once they was sure that he wasn't being followed, continue on their journey.
+
+Orin navigated them through the streets and allys with confidence. He never looked lost, but made sure not to seem to eager either. He blended in perfectly with his surroundings, never getting more than a second glance from any of the other night dwellers, heading to and from their drinking spots of choice.
+
+He finally stopped and with one final glance around for anyone who might have noticed them said, "Okay, here we are", indicating a small brown door.
+
+"As we have already discussed, there is no assurance that this isn't a trap. You know what to do if everything goes south?". Emlyn nodded. "Okay, let's take a quick look around and then I will go for it. You stay here and warn me if anything happens. I will call you if I need you"
+
+Orin crossed to the door and after a moment the door swung open and Orin disappeared inside. 
+
+Suddenly feeling very alone, Emlyn looked around rapidly for anyone who might be approaching, but the street was dead quite. If she had been dressed in her usual dresses she probably wouldn't have lasted two seconds on the street before every brigand was after her. But disguised in black, possibly with a hidden sword at her side, anyone who looked at her would see a mercenary, if a short one, no doubt waiting to escort their master during his shady dealings.
+
+Funny thing Emlyn thought, that people would make such judgements based on your looks. If she had was stood here as a woman, she would be seen as easy pickings, a lamb to the slaughter. And yet, disguised as a mercenary, she didn't reflect even a candle of her true threat. A mask on a mask. A weapon, disguised as a woman, disguised as a mercenary.
+
+Emlyn watched from the shadows as a group of drunks heading home together, half stumbling half crawling to down the street. Their voices grew louder as they passed her, threats of violence interspersed with drunken slurs of fraternal love and raucous laughter. As they passed and voices started to disappear in the foggy night air, a short hoot came from the building opposite, and Emlyn recognising the call followed Orin through the door.
+
+Coming in from the dull light of the alley, she was struck by just how dark the solitary staircase inside was. Her vision abandoned her completely as she closed the door and pitch blackness engulfed her.
+
+She started to ascend the stairs, letting her feet find her way, before she started to just make out the reflection of a small candle at the top of staircase.
+
+Turning into the room Orin was crouched, looking at some documents which he has pulled out from behind an apparent loose wooden panel in one of the walls.
+
+"Any luck?", Emlyn whispered.
+
+Orin shook his head. 
+
+"I have only been able to decode the dates", he replied, "but they only appear to be from dates before he went missing"
+
+He continued to flip through the book before passing it to Emlyn, who proceeded to look through it as well.
+
+"This is interesting though", Orin said, with a hint of intrigue in his voice. "This seems to be something separate from his official reports. I will have to decipher it though"
+
+"Hmm", Emlyn mused, flipping the book closed again and handing it back to Orin who placed both books into a small pouch that was concealed within his clothing, before dropping his cloak back so that there was no sign of their existence.
+
+"I assume that the fact that he hasn't been hear in over a month is not a good sign", Emlyn mused.
+
+"No, not a good sign at all", Orin replied. "I think that it is a good bet that he has either been arrested, dead or has completely disappeared. Whichever it is, I doubt we will ever see him again"
+
+"If he has been arrested will be be in danger?"
+
+"I doubt it", said Orin, now pacing around the room, carrying the candle with him and poking through the odd contents, looking for anything that might give him any more clues.
+
+"We paid him well for his services", Orin continued. "But these types always want more. Its far more likely that he was simply embezzling more money than was good for him and he got caught taking too much money from the wrong pot"
+
+"Surely that is something that we can check. I am sure that there must be a public record of Royal executions", Emlyn suggested.
+
+"Indeed", Orin said, turning back to her. "We will go and check on that tomorrow. I think that you might find it most interesting"
+
+Orin returned to the wall, while Emlyn thought deeply. Orin replaced the wooden board into the wall, and after examining it for a few minutes decided that it looked good enough.
+
+"Okay, time to go."
+
+4.
+---
 
 
 
