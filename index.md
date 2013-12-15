@@ -2407,4 +2407,4 @@ Emlyn stared at the ground and ceiling, but no flash of inspiration came to her.
 
 Orin extinguished the lamp, and with one final scan, they left the room.
 
---->
+-->
