@@ -233,120 +233,7 @@ She ran her hands through her long hair, before replying.
 
 He flipped 
 
-<!---
 
-In autumn, with Catherine coming into her maturity, she had started her instruction in fencing, which it was traditional for the heir to compete in. Emlyn had never had much interest in the way of the sword, it had never been considered a particularly useful skill to her for a spy.
-
-Orin however was torn. He had been more than competent competition fencer as a younger man, and watching Catherine drilling in one of the private courtyards had brought him to a near apocalyptic rage over how she was being taught "monstrously wrong".
-
-One night he half heartedly mused whether he ought to offer his services to Lord Tosca, before Emlyn inquired as to whether he had completely lost his marbles if he truly expected Lord Tosca to believe that a well renowned tutor was also a competition fencer.
-
-He had unhappily agreed with her, but he had stopped attending Catherine's training session, and started walking around with a smug air, telling anyone who would listen that he didn't approve of such a bright girl "wasting her time on silly sports".
-
-Emlyn personally thought that he was a little over zealous in his apparent conviction, but every one else seemed to think it was perfectly normal, expected even, that someone in his position would act that way.
-
--->
-
-<!---
-
-8.
----
-
-!!!
-
--->
-
-<!--- 
-
-X.
----
-
-Bored… Gonna add some action!
-
--->
-
-X.
----
-
-Emlyn slips out when she has a spare chance and starts investigating their predecessors room, which has been locked up. Adventure!
-
-The previous spy, Derrik, was a minor clerk in the treasury. Emlyn and Orin are here to retrieve any of the notes that he left behind and return them to Verris.
-
-This will require them to live for an extended amount of time in Rens trying to find the books that could not be found by the inquisitors of Kris.
-
-Why do they have a chance of finding something that no one else could? Because the previous spy and Orin were rivals during their early days. No one knows him better, how he thinks, what he does, where he hides.
-
-X.
----
-
-Emlyn didn't find anything concrete, but an off hand thing that she mentions gets Orin thinking…
-
-Emlyn meets the Princess. She is really interesting, and she makes Emlyn a proposal of some kind. We like her.
-
-X.
----
-
-Orin does something secretly without telling Emlyn or explaining to the reader… Hmmm, what is he up to? A note of intrigue left at the end of the chapter.
-
-X.
----
-
-Cut to: the Scryers, far away, day time.
-
-Turn's out they are investigating a series of serial (redundant?) killings being perpetuated by a rogue planet drinker. We learn a little bit about their personalities
-
-X.
----
-
-We get to se a short chapter of the Unbreakables plans, possibly with the Captain of the guard in tow, but probably not.
-
-X.
----
-
-Back with Emlyn and Orin now. Apparently Orin's clandestine activities have paid off and he has a good clue. They find their predecessors safe house, in which there are a series of ciphers, but not the item they are looking for. Frustration!
-
-X.
----
-
-They start trying to break the ciphers, and thinking about every way that they can possibly bring this flying dutchman of a mission to an end. Orin is having some serious doubts about the mission, but tries to hide them, but Emlyn can tell.
-
-Meanwhile, Emlyn meets Robert. Not really sure how deep into the relationship we want to get. Emlyn never forgets that the mission is her number one priority, but even so…
-
-X.
----
-
-Princess gets back to Emlyn with her initial proposal. It is going to tough to balance everything and things start to slip…
-
-X.
----
-
-Cut back to the Scryers, they are up to something or other, more character building.
-
-X.
----
-
-Plot event! Emlyn breaks the cyphers and discovers that it was actually a Verrisian the whoel time who was trying to precipitate war. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
-
-X.
----
-
-Mint scene
-
-X.
----
-
-Turns out, it was at the Princesses orders that her father was to be killed. She was doing it because, the danger that Verris posed was too great!!!
-
-X.
----
-
-Ending
-
-
-
-
-
-LEGACY COMMENTED OUT
 
 <!---
 
@@ -1505,6 +1392,121 @@ COOL LINES:
 On knowing other members of the House of Eyes : "Eyes, though separated by barely an inch, can never see each other."
 
 -->
+
+<!---
+
+In autumn, with Catherine coming into her maturity, she had started her instruction in fencing, which it was traditional for the heir to compete in. Emlyn had never had much interest in the way of the sword, it had never been considered a particularly useful skill to her for a spy.
+
+Orin however was torn. He had been more than competent competition fencer as a younger man, and watching Catherine drilling in one of the private courtyards had brought him to a near apocalyptic rage over how she was being taught "monstrously wrong".
+
+One night he half heartedly mused whether he ought to offer his services to Lord Tosca, before Emlyn inquired as to whether he had completely lost his marbles if he truly expected Lord Tosca to believe that a well renowned tutor was also a competition fencer.
+
+He had unhappily agreed with her, but he had stopped attending Catherine's training session, and started walking around with a smug air, telling anyone who would listen that he didn't approve of such a bright girl "wasting her time on silly sports".
+
+Emlyn personally thought that he was a little over zealous in his apparent conviction, but every one else seemed to think it was perfectly normal, expected even, that someone in his position would act that way.
+
+-->
+
+<!---
+
+8.
+---
+
+!!!
+
+-->
+
+<!--- 
+
+X.
+---
+
+Bored… Gonna add some action!
+
+-->
+
+X.
+---
+
+Emlyn slips out when she has a spare chance and starts investigating their predecessors room, which has been locked up. Adventure!
+
+The previous spy, Derrik, was a minor clerk in the treasury. Emlyn and Orin are here to retrieve any of the notes that he left behind and return them to Verris.
+
+This will require them to live for an extended amount of time in Rens trying to find the books that could not be found by the inquisitors of Kris.
+
+Why do they have a chance of finding something that no one else could? Because the previous spy and Orin were rivals during their early days. No one knows him better, how he thinks, what he does, where he hides.
+
+X.
+---
+
+Emlyn didn't find anything concrete, but an off hand thing that she mentions gets Orin thinking…
+
+Emlyn meets the Princess. She is really interesting, and she makes Emlyn a proposal of some kind. We like her.
+
+X.
+---
+
+Orin does something secretly without telling Emlyn or explaining to the reader… Hmmm, what is he up to? A note of intrigue left at the end of the chapter.
+
+X.
+---
+
+Cut to: the Scryers, far away, day time.
+
+Turn's out they are investigating a series of serial (redundant?) killings being perpetuated by a rogue planet drinker. We learn a little bit about their personalities
+
+X.
+---
+
+We get to se a short chapter of the Unbreakables plans, possibly with the Captain of the guard in tow, but probably not.
+
+X.
+---
+
+Back with Emlyn and Orin now. Apparently Orin's clandestine activities have paid off and he has a good clue. They find their predecessors safe house, in which there are a series of ciphers, but not the item they are looking for. Frustration!
+
+X.
+---
+
+They start trying to break the ciphers, and thinking about every way that they can possibly bring this flying dutchman of a mission to an end. Orin is having some serious doubts about the mission, but tries to hide them, but Emlyn can tell.
+
+Meanwhile, Emlyn meets Robert. Not really sure how deep into the relationship we want to get. Emlyn never forgets that the mission is her number one priority, but even so…
+
+X.
+---
+
+Princess gets back to Emlyn with her initial proposal. It is going to tough to balance everything and things start to slip…
+
+X.
+---
+
+Cut back to the Scryers, they are up to something or other, more character building.
+
+X.
+---
+
+Plot event! Emlyn breaks the cyphers and discovers that it was actually a Verrisian the whoel time who was trying to precipitate war. Wow, everything makes sense. But wait, it's worse than that! It appears that there is a mole inside the House of Eyes who is leaking information, and people are on the look out for spies. They are hunted now...
+
+X.
+---
+
+Mint scene
+
+X.
+---
+
+Turns out, it was at the Princesses orders that her father was to be killed. She was doing it because, the danger that Verris posed was too great!!!
+
+X.
+---
+
+Ending
+
+
+
+
+
+LEGACY COMMENTED OUT
 
 <!---
 
