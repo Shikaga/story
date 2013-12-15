@@ -231,7 +231,56 @@ She ran her hands through her long hair, before replying.
 
 "Well, let's hope that we have a  few days." Orin said, walking to the pile of cases and pulling one out and throwing it on the main table. "It has been just over month now since we last received a message from Lion Rampant. We may need to act quickly on what we discover"
 
-He flipped 
+He flipped open the case, checked it's contents, lifting up a few garments and checking under them, before flipping the lid back down and locking it again.
+
+"Okay", Orin continued. "First order of business is to get settled here. We want it to be clear that I am just a wealthy merchant in town for a few weeks to any of the staff who might poke their nose around.
+
+Don't leave anything out that might arouse even the slightest suspicion. We need to assume that some of the servants are going to steal a coin or two, just make sure that it isn't anything that will give them anything to think we are anyone but who we think we are"
+
+"You don't trust the people here?", Emlyn asked.
+
+"On the contrary, I trust them to be exactly what I want them to be: Greedy, but not curious. Most cheap inns want have landladies who want to know all your comings and goings, and will ask endless questions if you return after dark.
+
+The Crystal Flute by contrast, know that it does not pay to interfere in their patrons affairs, and that questions are best not asked about what their guests get up to in the dark hours. They understand that corruption keeps the wheels of Rens turning, and they are happy to take their cut to turn a blind eye.
+
+Still, it would be best to not give them any reason to think anything at all"
+
+"Of course", Emlyn said leaving the window, with a small twinge of regret, and walking to her own cases. "And then?" she asked.
+
+"Once it is dark, we will head to one of the safe houses that Lion was using. If something happened, he may have had time to stash something there before he ceased his messages"
+
+Emlyn frowned. The chances of someone being able to leave a message at a drop point before  going into hiding, was highly unlikely. If they suspected that they were under suspicion, the last thing that they would do is go to a safe house. If Lion Rampant had become nervous and had decided to go to ground, they would have already snuck out a message to their handlers in Verris. 
+
+They had not received any message of any kind. That indicated that they had probably been arrested, or if they were lucky killed in the attempt.
+
+If they had been arrested, it would be more than likely that by now they would have given up everything that they knew, and the powers that be would be watching the area for anyone unlucky enough to try and follow up on what had happened. Waiting for Emlyn.
+
+"Well, you didn't sleep well, so I would recommend that you unpack, and get some sleep. I will wake you for a late lunch"
+
+Emlyn simply nodded her ascent, and started moving her bags, and once she was complete, bid Orin adieu.
+
+"Sweet dreams", he said, somewhat wistfully, as though hoping that he could make it so. Emlyn gave a tight lipped smile, and snuck into her room, closing the door behind her.
+
+Pulling the curtains closed against the early morning sun, Emlyn stood for a moment in front of the eastern window, enjoying the cool ephemeral breeze from Meranis, the fourth planet in the night sky. While it was invisible during day to the naked eye, Emlyn could feel the power of its Planetshine so clearly that she could point directly towards it.
+
+Since she was a young child it had been her constant companion, rising and falling in its celestial motions, gifting and stripping her of power on a daily basis, as uncaring as stars.
+
+From beneath her shift she pulled her golden Planetwell. An ornately worked series of of gears and levers mounted on a spindle within a golden sphere. 
+
+It was empty of course, she had drunk all of it's power in the middle of the previous night when she had been at her weakest. She hung it up in the window, feeling the a small chill where it cast a shadow as it absorbed Meranis's power.
+
+The tiny paddles within it rotated freely, swinging in all directions as they caught the steady breeze that Meranis blew over the entire room, storing up it's power. While Emlyn couldn't quite see Meranis, no more than one can see the wind, she could feel that the Planet well drew the breeze into itself, absorbing a much larger area than what the physical device would appear.
+
+She drew the curtains, and promptly fell asleep.
+
+---
+
+Orin opened his journal, and with exquisite patience, dipped his mechanical quill into the pot of ink and started to write.
+
+> Emlyn's dreams continue. They are taking an increased mental toll on her mental condition. She is sleeping longer, and she has started to unconsciously draw on her Planetwell at night. 
+> I will continue to monitor her, but if her condition continues to worsen medication may be required.
+
+3.
 
 
 
