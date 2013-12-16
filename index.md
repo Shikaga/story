@@ -443,7 +443,10 @@ Marcus just stared at the man for a minute before replying.
 
 Emlyn...
 
-<!---
+
+IGNORE ALL BELOW HERE. I WOULD COMMENT IT OUT, BUT JEKYLL COMMENT PARSING IS BROKEN, IMO.
+
+COMMENTSTART
 
 11.
 ---
@@ -1599,9 +1602,9 @@ COOL LINES:
 
 On knowing other members of the House of Eyes : "Eyes, though separated by barely an inch, can never see each other."
 
--->
+COMMENTEND
 
-<!---
+COMMENTSTART
 
 In autumn, with Catherine coming into her maturity, she had started her instruction in fencing, which it was traditional for the heir to compete in. Emlyn had never had much interest in the way of the sword, it had never been considered a particularly useful skill to her for a spy.
 
@@ -1613,25 +1616,25 @@ He had unhappily agreed with her, but he had stopped attending Catherine's train
 
 Emlyn personally thought that he was a little over zealous in his apparent conviction, but every one else seemed to think it was perfectly normal, expected even, that someone in his position would act that way.
 
--->
+COMMENTEND
 
-<!---
+COMMENTSTART
 
 8.
 ---
 
 !!!
 
--->
+COMMENTEND
 
-<!--- 
+COMMENTSTART 
 
 X.
 ---
 
 Bored… Gonna add some action!
 
--->
+COMMENTEND
 
 X.
 ---
@@ -1716,7 +1719,7 @@ Ending
 
 LEGACY COMMENTED OUT
 
-<!---
+COMMENTSTART
 
 WOW, I hate to delete so much. But this shit just wasn't working
 
@@ -2407,4 +2410,4 @@ Emlyn stared at the ground and ceiling, but no flash of inspiration came to her.
 
 Orin extinguished the lamp, and with one final scan, they left the room.
 
---->
+-COMMENTEND
