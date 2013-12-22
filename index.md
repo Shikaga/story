@@ -440,8 +440,91 @@ Marcus just stared at the man for a minute before replying.
 
 5.
 ---
+Papers littered the table. Emlyn sat legs folded in a large sitting chair, hunched over the table, painstakingly filling out numbers in the correct columns, while Orin sat opposite her, going through her and working checking for any errors, which of course, their weren't.
 
-Emlyn...
+Every other spare inch of the table was taken up with sheets of numbers and figures, tables of letters and numbers stretching from one side to the other.
+
+Emlyn finally let his quill drop, placing it carefully on a stand, and carefully replacing the stopper on the ink well.
+
+She let out a sigh as she leant back on her chair, raising her arms above her head as the joints in her back creaked. He passed the final sheet across the table to Orin.
+
+Orin scanned the page, nodding thoughtfully and slowly drew his pipe out of his inner coat pocket, which was draped over the chair.
+
+Orin walked to the fireplace, and after throwing another log on the hearth, pulled a taper from the pot upon the mantle, and lit his pipe from the flames.
+
+The smoke rose slowly to the ceiling as Orin exhaled slowly, enjoying his treat for a job well done. Emlyn had only ever seen Orin smoke when he felt that he deserved it, though she suspected that he carried his pipe with him everywhere.
+
+"So, what do you make of all this?", Orin inquired, as he took another deep drag on his pipe.
+
+"To be honest, I have no idea", Emlyn replied. "He has made lots of suppositions, but to what conclusion, I am completely unsure"
+
+"And what do you make of his notes of the large amounts of cotton being redirected around Kris?"
+
+"No idea, although, he seemed to have some theories himself, although he doesn't seem to have shared them in this journal"
+
+"No, he hasn't", Orin mused.
+
+Orin paced up and down the room, while Emlyn read through the papers again. Orin apparently only needed to read them once.
+
+"Indeed, it seems as though he has had a lot of suspicions. A lot of suspicions that he didn't deign to share with us."
+
+"But he wrote them down"
+
+"Yes, that is what is so curious", Orin replied. "We all have thoughts. One learns not to let tell everyone, to wait until you have evidence, so that you will be seen as someone who comes up with reliable theories.
+
+"Lion Rampant clearly had suspicions, suspicions strong enough that he knew they needed to be written down, in case something should happen to him, but no strong enough in his mind to inform the House of Eyes, unless…", Orin trailed off.
+
+Orin walked up and down, smoking his pipe slowly, looking into the far distance, lost in thought. Emlyn continued to reread the report, but no flash of realisation came, and she eventually replaced the sheets on the table and waited for Orin patiently.
+
+After what seemed like a quarter bell, Orin finally stopped, his pipe having burnt low significant time ago.
+
+"No", he finally ventured. "What is going on here is far more complicated than either of us suspected".
+
+Orin tapped his pipe out on the hearth before replacing it in the pouch.
+
+"Lion Rampant knew exactly what was happening. But he didn't want to disclose it. In fact,  his theories were so inflammatory, that he didn't even want to right down his conclusions, he wanted only to report the facts, such as they were.
+
+"But why? Why go to such extraordinary lengths, and is it somehow connect to his disappearance? Well, there can be only one explanation, he was being watched. But watched by whom? Everyone knows that within the walls of the Royal Mint of Kris, all are watched.
+
+"No, he was not concerned about being watched from within, but from without, from Verris. He must have suspected that someone in The House of Eyes was feeding his reports back to Kris. But what to do? Lion Rampant's true identity is known only to one person, someone he can truly trust. Even if his reports are leaked, it will take time, time and questions for the powers that be to discover him.
+
+"In the meantime, a complete cut of communications would have triggered exactly what is now occurring, a envoy to try and re-establish contact. For a man under suspicion, the last thing that he wants is some conspicuous rookie spy outing him.
+
+"So he continues to send messages, as usual, all the time compiling a separate list of truly sensitive information that might be able to identify him. Perhaps he even finds some obscure material that no one thinks he has access to, just to throw anyone off his scent"
+
+Orin took a breath, and sat down at the seat before continuing.
+
+"But why, why did he suddenly suspect that he was under suspicions? There was no way that he could have intercepted any documents to that effect, and I doubt anyone would have been stupid enough to let it slip that they knew someone was leaking documents in his departments.
+
+"No, he must have found documents pointing to a conspiracy that could only have occurred because someone high up in the Verrisian government was implicated. And if that was so, how could he not be sure that it was someone within The House itself.
+
+"And what were his suspicions? Only one thing makes sense, wide scale counterfeiting"
+
+With a flourish, Orin sorted madly through the papers littering the table before passing them to her.
+
+"Here, these are shipments that he refers to in his secret note book", he said indicating the correct place in the ledger. "Cotton, paper, ink, metal", he continued, flipping the pages to the relevant entries.
+
+"All of these suddenly appeared on the books, always being sent to the same place. And what do they all have in common? They are ways of printing paper notes, Verrisian notes. Kris does not have paper currency in common circulation, these must be for printing Verrisian notes. 
+
+"But how does could he know this was a conspiracy, rather than simply some friendly banter between rival kingdoms. He couldn't. But Lion Rampant knows how to follow a paper trail, and that is what all of this is, one long paper trail. And he followed it, and wherever it led, he didn't like the answer, or someone else didn't like him knowing the answer"
+
+Orin finally stopped, letting out a long sigh. Emlyn sat for a moment and thought to herself.
+
+"So do you think he has been captured then?", she enquired.
+
+Orin paused for a second, before replying.
+
+"No, I don't think so", he paused before continuing. "But I don't think we are likely to see him again, at least not before he wants us to see him again. No, I suspect that he has discovered who the traitor in Verris is, and decided that he wants nothing to do with it until someone deals with that problem"
+
+"Okay then", Emly replied. "So what is the next step"
+
+"The next step", Orin said, "is to get plenty of rest. We may need to act quickly, and if that is the case, we will need to be fully prepared for another late night tomorrow"
+
+6.
+---
+
+Marcus...
+
 
 
 IGNORE ALL BELOW HERE. I WOULD COMMENT IT OUT, BUT JEKYLL COMMENT PARSING IS BROKEN, IMO.
