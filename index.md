@@ -523,13 +523,105 @@ Orin paused for a second, before replying.
 6.
 ---
 
-Marcus...
+Light was barely struggling over the horizon as Marcus and Jake brought the horses to a quiet stop just outside their quarry's house.
 
+Marcus' horse whinnied quietly as he dismounted, the leather harness creaking in the cool morning air.
 
+With a rigid familiarity Marcus removed his sword from the the travel pack on his horse and slung it around his waist. He adjusted it, making sure that it matched his uniform, such as it was.
 
-IGNORE ALL BELOW HERE. I WOULD COMMENT IT OUT, BUT JEKYLL COMMENT PARSING IS BROKEN, IMO.
+The dark blue suit and and jacket were adorned with imperial pins, denoting his seniority and rank. 
 
-COMMENTSTART
+He looked to Jake who nodded and Marcus walked towards the house. Jake did not yet have the commander pin, but he was young; there was no question that he would have it in barely a seasons turn. How long before Marcus would be taking orders from Jake?
+
+He drew his sword as he approached the door of the house and turned the handle with his left hand. The handle turned smoothly in his hand, and the entered quietly.
+
+The kitchen of the house was small and tidy, with a metal stove showing just the ashes of the previous night and all other surfaces being otherwise clear. Just one door led into the back of the house and Marcus nodded to Jake, who entered first, drawing his knife from his belt.
+
+The bed was still occupied by a single occupant. The blankets lay strewn over the bed, and the person barely covered by them twitched lightly, a sheen of sweat clear across his face.
+
+Marcus raised his sword at his unconscious opponent, before nodding to Jake.
+
+With alacrity Jake jumped onto the bed, pinning his target to the bed, with the dagger biting painfully into to the throat of the PlanetDrinker.
+
+"Now now", Marcus said as the man started thrashing madly, trying to throw Jake to the floor. "If you continue to struggle, my man will simply kill you"
+
+With that Jake twisted his wrist a little more and the escape attempt quickly subsided. A small sliver of blood started to drip down the dagger.
+
+"Now, you are going to answer our questions, or we are going to kill you right here, right now", Marcus continued, "do you understand?"
+
+A guttural tone emitted from the man's throat and Jake loosened his grip slightly.
+
+"Yes", the man finally croaked out.
+
+"Excellent", Marcus replied. "Now to be honest, there is no need for your confession, we already know what you are, and what you did. But perhaps you would like to explain yourself"
+
+"I didn't kill those people!", the man exclaimed, exasperation in his voice, his body spasming as he proclaimed his innocence. Jake increased the pressure upon the knife, and the man cut off abruptly.
+
+"Whispers please, good sir, we wouldn't want to think you were getting murderous again", Marcus ordered.
+
+"I didn't kill those people", he said, quietly now, his body sinking into the bed again.
+
+"Now which people would those be?", Marcus asked. 
+
+"Everyone knows, the whole village is on alert, some wild animal is killing people"
+
+"A wild animal you say. A wild animal who murders people by beating them to death, tearing them limb from limb. Well I must say, I have never heard of such a thing before"
+
+"No man could do that", the man said as though he had practiced this conversation over and over in his head. "It must have been a bear or something"
+
+"No, you are quite correct", Marcus conceded. "No man could do it"
+
+There was a pause, before Marcus continued.
+
+"But you're not a man, are you?"
+
+A look of fear flashed across his face, to be replaced, just too late, with a look of confusion.
+
+"What do you mean?", he asked.
+
+Marcus laughed hollowly. 
+
+"Come on, you have known this question would come one day. All those times that people looked at you oddly, wondered how you could do those things that no mortal man should be able to"
+
+"I didn't do it", he said, but his heart wasn't in it.
+
+"No", Marcus said. "But you knew, didm't you. When you woke up the next morning with blood on your hands. You knew what you would find the next day. And when the town bell rung, you knew what had happened didn't you"
+
+A deep silence now filled the room. The sound of breathing broke like waves against the walls, the creak of their clothes sounded like thunder in the quietness.
+
+"I didn't mean to", he finally said, his voice cracking, as tears started running down the side of his face.
+
+"No", Marcus said gently. "But you didn't stop yourself either did you? You knew what you were capable of, and you did nothing"
+
+"I thought I could control it", he said weakly. "I never meant to hurt anyone. Jane least of all"
+
+"She was the first. That might almost have been excusable. But when you realised what you had done, why didn't you turn yourself in?"
+
+"No one would have understood. The wounds were... Unnatural. No one would believe I was capable of it. And if I convinced them they would just burnt me on a Living Pyre"
+
+"And so, you let others did in your stead. And it would only have been so long until you killed again. How long before you were the nay person left in this whole village?"
+
+He didn't reply, and after a moment Marcus continued.
+
+"How old are you now?"
+
+"24 years, sir", he replied.
+
+"And when did the dreams start?"
+
+The man looked up at him, confusion on his face.
+
+"Just after my sixteenth birthday", he finally replied.
+
+"Well, then if it makes you feel any better, you lasted longer than most"
+
+"You don't know what it is like, being wracked by terror every night. At first it wasn't so bad, at first I thought they were just nightmares. But seeing everyone you love die every night, over and over…"
+
+He had finally stopped crying, but he continued to shake as though he had simply run out of tears.
+
+"It's okay, it will all be over soon", Marcus said finally.
+
+The Man's eyes bulged as Jake pulled the dagger slowly over his throat in a gentle, almost caressing gesture.
 
 11.
 ---
