@@ -1697,6 +1697,10 @@ Orin sighed deeply. "I suspect that there are going to be a lot of difficult que
 Emlyn stuck her arms around Orin, and he hugged her tighter as they finally headed for home.
 
 
+THE END
+
+
+
 New Guideline!
 ---
 
